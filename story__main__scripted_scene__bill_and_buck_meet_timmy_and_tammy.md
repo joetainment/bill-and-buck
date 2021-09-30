@@ -1,23 +1,21 @@
 
-
-
-
+Bill and Buck Mett Timmy and Tammy
+======================================
 
 
 Bill
 
 Where did you get that?
 
-
+=
 Timmy
 
 From myself?
 
-I fabbed it
+I fabbed it.
 
 
--
-
+=
 Bill
 
 You "fabbed" it?
