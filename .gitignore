@@ -1,7 +1,6 @@
 
-gitignore*
-git.ignore*
-git-ignore*
+*gitignore*
+*git-ignore*
 
 !.gitignore
 
