@@ -76,8 +76,7 @@ But kind of random, like you never know when
 
 Bill:
 
-Oh we've seen them all right. It can be pretty annoying he follows us to
-
+Oh we've seen them all right.
 
 Do you know what he is?
 
@@ -89,26 +88,30 @@ Timmy:
 I don't know man. He looks kind of like a frog or something. He just follows us around sometimes, it's messed up.
 
 
+Bill:
+
+He follows us too. It can get pretty annoying. He's been following us around for years.
+
 
 
 Tammy:
 
 And then there's that wacky raccoon!
 
-He follows her around too.
+He follows her around too!
 
 
 
 
 Timmy:
 
-What's even crazier is he follows us both at the same time. Even when we both go to totally separate places. like, we can both take pictures of him at the same time in completely different places.
+What's even crazier is... He follows us both at the same time. Even when we both go to totally separate places. Like, we can both take pictures of him in different place at the same time. Completely different places.
 
 
 
 Bill:
 
-Oh yeah he does that all the time he's been following us around for years.
+Oh yeah he does that all the time.
 
 
 Tammy:
@@ -140,7 +143,7 @@ So why don't you follow him there?
 
 Timmy:
 
-We can't man, it's bad you can't go into the Wasteland. Some people try, but they always come back.
+We can't man. It's bad... You can't go into the Wasteland. Some people try, but they always come back.
 
 
 
