@@ -1,4 +1,4 @@
-Chapter 1 - Bert Makes A Mistake
+Chapter 1 - Burt Makes A Mistake
 =========================================
 
 
@@ -126,7 +126,7 @@ Really, all things considered, this wasn't a bad place to be. One of the nicest 
 
 <br><br><br><br>
 
-By the time Burt finally hit the ground, Bee-bee-arr had used what was left of the brakes, and had mostly Burt down, so it was a pretty soft landing. The gentle dirt of the farm field had a nice new trough, but there wasn't much of a crater.
+By the time Burt finally hit the ground, Bee-bee-arr had used what was left of the brakes, and had mostly slowen Burt down, so it was a pretty soft landing. The gentle dirt of the farm field had a nice new trough, but there wasn't much of a crater.
 
 Burt had crashed about as cleanly as a spaceship frog could be expected to.
 
@@ -159,7 +159,7 @@ The little human was not friendly.
 
 This little human was worse than unfriendly.
 
-This little human, it turned out, was downright mean.
+This little human, it would eventually turn out, was downright mean.
 
 
 
