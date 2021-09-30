@@ -22,7 +22,7 @@ Big Picture Plans And Philosophies For The Project
 
 
 Goal (currently)
-====================
+-----------------
 
 The initial and current goal is to build up the story in a format of prose and illustrations, like a novel or series of novels. This story is also supplemented by supporting materials, such as character's personal logs, fact sheets. The main content (core story) would be targeted at an audience older children, and also hopefully be entertaining and likeable for older audiences as well.  The targeting is to be something like the way initial Pixar films, Star Wars films, or Harry Potter books were targeted.
 
