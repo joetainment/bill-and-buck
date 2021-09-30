@@ -125,13 +125,13 @@ Roboccai is sometimes said for short, and understood to mean the same thing.
 
 However...
 
-"Robai" or "Robii" as it is more commonly spelt, are even shorter words, and are often used to refer to living robots in general. (Not *only* those Roboticcai created by Wilbert and their descendents.) Colloquially in speech, people tend to say Robii. Robbai(prounced like "row" and "bye" blended into one word. )   
+"Robai" or "Robii" as it is more commonly spelt, are even shorter words, and are often used to refer to living robots in general. (Not *only* those Roboticcai created by Wilbert and their descendents.) Colloquially in speech, people tend to say Robii. Robii is prounced like "row" and "bye" blended into one word.
 
-Thus, Burt is a Robai but he is not a Roboticcai or a Roboccai.  All Roboticcai are Robii. Not all Robii are Roboticcai.
+Thus, Burt is a Robii but he is not a Roboticcai/Roboccai.  All Roboticcai are Robii. Not all Robii are Roboticcai.
 
 All three words are generally both singular and plural. Some people say "Robiis" with an S sound at the end, but it's not necessary. S sounds used with the other terms are even less common.
 
-Bill, the very first Roboticcai, (created by Wilbert) popularized the terms initially. (Some others humans, such as Timmy, had already used the term "Robai" though.) Quoia's mentor was Bill, and Quoia adopted most of his terminology and used the terms in her publications.  Humans and other Robii now do the same.
+Bill, the very first Roboticcai, (created by Wilbert) popularized the terms initially. (Some others humans, such as Timmy, had already used the term "Robii" though.) Quoia's mentor was Bill, and Quoia adopted most of his terminology and used the terms in her publications.  Humans and other Robii now do the same.
 
 Quoia was the first genuine mother in the Roboticcai race, the first of the Roboticcai to directly have children of her own, or even to be able to.
 
