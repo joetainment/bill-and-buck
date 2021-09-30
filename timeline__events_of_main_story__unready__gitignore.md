@@ -6,6 +6,14 @@ Bill And Buck - Outline Of Main Storyline
 The Age Of Burt (begins)
 
     The Arrival Of Burt
+    
+    Property Of Wilbert
+    
+    Lost And Found
+    
+    To The Barn
+    
+    Wilbert's Workshop
 
     Meeting BeeBeeArr
     
