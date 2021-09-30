@@ -28,7 +28,7 @@ The initial and current goal is to build up the story in a format of prose and i
 
 There is certainly enough depth in the core story to make it interesting to adults. It deals with some *very* deep philosophical questions.
 
-Bill And Buck is not targeted at very young children. However, certain content will be made to target. Such or short picture books for younger children, which would be mostly illustrations with some text.
+Bill And Buck is not targeted at very young children. However, certain content will be made to target. Such as short picture books for younger children, which would be mostly illustrations with some text.
 
 Ultimately, if it ever became possible, Bill And Buck would be presented in a variety of media.  In fact much of it was originally planned as a series of short animated films and comics or graphic novels.
 
