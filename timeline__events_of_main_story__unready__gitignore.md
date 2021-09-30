@@ -41,7 +41,7 @@ The Age Of Burt (begins)
 
         The World's Peril
         
-        Bill's Heroic Shield
+        Bill's Heroic Efforts
 
         The Fall of the Heroes
 
@@ -91,6 +91,18 @@ The Age Of Burt (begins)
             
             A Stroke Of Luck, Or Many!
             
+            Something Is Wrong Here
+            
+            Some Mysteries Have To Be Solved
+            
+            Back To The Wasteland
+            
+            This Can't Be
+            
+            Problems Have Solution
+            
+            A Crack In The Dome
+            
         Shielded (ends)
             
         Molly Explodes
@@ -123,7 +135,7 @@ The Age Of Burt (begins)
             
             Space Magic
             
-            A Tainted Universe?
+            Your Universe Is Tainted
             
             This Is The Worst
             
@@ -133,7 +145,9 @@ The Age Of Burt (begins)
             
             Is This The End?
             
-            Oh No Bill, Buck's Nightmare
+            Oh No Bill
+            
+            Buck's Nightmare
             
             We're Back, and We Brought Friends
             
@@ -149,6 +163,12 @@ The Age Of Burt (begins)
 
             Please Leave Us Alone
             
+            So They Have Some Morals After All
+            
+            Who Burt Really Is
+            
+            Everything Explained
+            
             Burt Can Stay, So Can Remy
 
             Everything is Going to be Okay
@@ -158,19 +178,21 @@ The Age Of Burt (begins)
 
         Wilbert Oscillates
 
+        In Seclusion
 
     The Time Of Wilbert (ends)
 
 
     The End Of Wilbert (begins)
 
-      Wilbert goes mostly into seclusion
+      Guilt
 
-      Wilbert designs and constructs Quoia
+      Constructing Quoia
 
-      Wilbert Die
+      Wilbert Dies
     
     The End Of Wilbert (ends)
+
 
     Good Times For The Gang (begins)
 
@@ -186,9 +208,9 @@ The Age Of Burt (begins)
         
         Bill Goes Away
         
-        The Leftovers
+        Two New Leaders
         
-        A New Leader
+        The Leftovers
         
         Explorator Buck
         
@@ -196,7 +218,7 @@ The Age Of Burt (begins)
     
     Good times For the Gang (ends)
     
-    The Age of Roboticcai
+    The Age of The Roboticcai
         
         Remembering The Story
         
