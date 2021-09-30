@@ -5,19 +5,19 @@ Characters
 Important Central Characters
 -------------------------------
 
-Burt
-Wilbert
-Remy
-Bill
-Buck
-Jake
-Timmy
-Tammy
-Janet
-Grumbette
-Grumple
-RoKara
-Quoia
+-Burt
+-Wilbert
+-Remy
+-Bill
+-Buck
+-Jake
+-Timmy
+-Tammy
+-Janet
+-Grumbette
+-Grumple
+-RoKara
+-Quoia
 
 
 Side Character, Friends Of The Gang
