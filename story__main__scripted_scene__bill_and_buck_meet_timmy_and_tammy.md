@@ -27,7 +27,7 @@ You "fabbed" it?
 Timmy
 
 
-Yeah like as in "fabricated", ummm...  like...  almost like a with printer, but one that makes real things,  3D things.  I guess it's like a "3D" printer.
+Yeah like as in "fabricated", ummm...  like...  almost like with a printer, but one that makes real things,  3D things.  I guess it's like a "3D" printer.
 
 I'm not very good at it yet, but I'm getting better at it. I think the science guys can make more  Complicated stuff than I can.
 
