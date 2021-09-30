@@ -105,7 +105,7 @@ He follows her around too!
 
 Timmy:
 
-What's even crazier is... He follows us both at the same time. Even when we both go to totally separate places. Like, we can both take pictures of him in different place at the same time. Completely different places.
+What's even crazier is... He follows us both at the same time. Even when we both go totally separate places. Like, we can both take pictures of him at different places at the same time. Completely different places.
 
 
 
