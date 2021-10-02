@@ -24,17 +24,17 @@ Big Picture Plans And Philosophies For The Project
 Goal (currently)
 -----------------
 
-The initial and current goal is to build up the story in a format of prose and illustrations, like a novel or series of novels. This story is also supplemented by supporting materials, such as character's personal logs, fact sheets. The main content (core story) would be targeted at an audience older children, and also hopefully be entertaining and likeable for older audiences as well.  The targeting is to be something like the way initial Pixar films, Star Wars films, or Harry Potter books were targeted.
+The initial and current goal is to build up the story in a format of prose and illustrations, like a novel or series of novels. This story is also supplemented by supporting materials, such as character's personal logs, fact sheets. The main content (core story) would be targeted at an audience of older children, but hopefully still be entertaining and likeable for adult audiences.  The targeting is to be something like the way initial Pixar films, Star Wars films, or Harry Potter books were targeted.
 
-There is certainly enough depth in the core story to make it interesting to adults. It deals with some *very* deep philosophical questions.
+There is certainly enough depth in the core story to make it interesting to adults. It deals with some *very* deep philosophical questions, but tries to explore them in a fun and usually light-hearted sort of way.
 
-Bill And Buck is not targeted at very young children. However, certain content will be made to target. Such as short picture books for younger children, which would be mostly illustrations with some text.
+Bill And Buck is not targeted at very young children. However, certain content *could* be made to target young children. Such as short picture books for younger children, which would be mostly illustrations with some text.
 
-Ultimately, if it ever became possible, Bill And Buck would be presented in a variety of media.  In fact much of it was originally planned as a series of short animated films and comics or graphic novels.
+Ultimately, if it ever became possible, Bill And Buck would be presented in a variety of media. In fact much of it was originally planned as a series of short animated films and comics or graphic novels.
 
-However, since production on those is beyond my (Joe Crawford's) current abilities, and budget, I've instead decided to do it as a written story with some illustrations.  Ideally, in the long run such material would eventually be Creative Commons licensed.
+However, since production on those is beyond my (Joe Crawford's) current abilities, and budget, I've instead decided to do it as a written story with some illustrations.  Ideally, in the long run, such material would eventually be Creative Commons licensed.
 
-The goal of the project is not to make money, it's basically just a hobby. I don't even care if it's ever popular. I'll be satisfied as long as I like it and believe it's a fun or interesting story.
+The primary goal of the project is *not* to make money, it's basically just a hobby. I don't even care if it's ever popular. I'll be satisfied as long as I like it and believe it's a fun or interesting story.
 
 
 
@@ -65,6 +65,14 @@ The vast majority of the narrative is presented by an in universe character, Quo
 
 After the events of the main story, Quoia creates and maintains an archive so that people can know what happened in the "Times of Wilbert". She does this in part so that her world can never forget, and instead can learn from those past mistakes and live in Utopia. The utopia she lives in is the city of Utope, and its greatness is the result of applying those lessons learned. (Utope, her city of residence, was named as such long before it ever became a real utopia. In fact, the name is what really inspired Quoia to turn in into a utopia.)
 
+Quoia will often even go so far as to create or commision "artists' interpretations" of these stories. (Quoia herself is  a major art enthusiast.)
+
+
+
+
+
+All About Bill And Buck  (+The Universe They Live In)
+==============================================================
 
 
 Who Is Quoia?
@@ -78,17 +86,21 @@ Quoia is the direct creation of Wilbert.
 How Does Quoia Know So Much About Historical Events?
 -----------------------------------------------
 
-Historical knowledge comes to Quoia is several ways.
+Historical knowledge comes to Quoia in several ways.
 
-First, as intended by Wilbert, who constructed Quoia, she has all the memories of Wilbert buried deep inside of her memory. When Wilbert constructed Quoia, he copied all of the information from his brain into a section she'd be able to itermittently access later, in a read-only manner.  Quoia does not always have immediate access, and hasn't gone through it all, since it is overwhelming to her. She is in fact fairly terrified of the memories. Bravely she occasionally overcomes her fears and looks at Wilbert's memories anyway. She does this to better understand the past.
+First, as intended by Wilbert, who constructed Quoia, she has all the memories of Wilbert buried deep inside of her memory. When Wilbert constructed Quoia, he copied all of the information from his brain into a section she'd be able to itermittently access later, in a read-only manner.  Quoia does not always have immediate access, and hasn't gone through it all, since it is overwhelming to her. She is in fact fairly terrified of the memories. Bravely she occasionally overcomes her fears and looks at Wilbert's memories anyway, as she tries to better understand the past.
 
-There is another *very* powerful way for Quoia to access information. Sometimes she has access to the past via the memories of another character Burt, who through the entire story, had a relatively omnipotent viewpoint, and need not look through any "lens". Unfortunately, Burt does not talk.  The the only being who seems to effectively communicate with Burt is a mute animal character, Remy the Raccoon. Remy seems at least mildly interested in helping Quoia, and encourages Burt to cough up the information. It is highly incomplete at first, but it accumulates over time and eventually Quoia has a pretty complete understanding of all the most important events.
+Second, Quoia has direct access to the story's main characters, who are her friends. She can interview them directly. Many of them, being Robii, are still alive far into the future. After the interviews, she can either directly publish the interviews or use them to author a depiction of what occured.
 
-Finally, Quoia also has direct access to the story's main characters, many of whom are still alive far into the future, and are her friends. Thus she can interview them directly, and either directly publish the interviews or use them to author a depiction of what occured, and optionally create or commision an "artist's interpretation". Quoia herself is  a major art enthusiast.
+Third, Quoia has access to many of the possessions of the story's characters, many of which pre-date her own construction. These possesions include a multitude of recordings the gang made. Photos, logs/journals, work notes, and home movies just to name a few. Many artifacts collected along their travels are still kept with Quoia, safely in the land yaught. (Bill and Buck's main vehicle, and the most secure storage location possible.)
+
+Fourth and finally, there is one more *very* powerful way for Quoia to access information. Sometimes she has access to the past via the memories of another character, Burt, who through the entire story, had a *relatively omnipotent* viewpoint. Unlike the other characters, Burt's senses need not look through any "lens". Theoretically, Burt should continue to have memories of anything he was paying attention to, and even some things he wasn't.
+
+Unfortunately, Burt does not talk.  The the only being who seems to effectively communicate with Burt is a mute animal character, Remy the Raccoon. Remy seems at least mildly interested in helping Quoia, and encourages Burt to cough up the information as data now and then. During Quoia's early research effort, the data and recordings from Burt remain highly incomplete. Luckily, over time, the data from Burt accumulates, until eventually, Quoia has a pretty complete understanding of most important events.
 
 
 
-Where Is Utope? Where are the library archives?
+Where Is Utope?  Where are the library archives?
 -------------------------
 
 In the Bill And Buck universe, much of the world is similar to but not exactly the same as our universe's planet Earth.
@@ -111,13 +123,13 @@ Because of the time dialation of her town during the early Years of Wilbert, the
 How far into the future is Quoia's Perspective?
 --------------------------------------------------------
 
-The farthest mentioned so far is sometime in the 23rd century, where Quoia is still alive and well, living in a near perfect Utopia, and where she is considered "Mother of Roboticcai".
+The farthest mentioned so far is sometime in the 23rd century, when Quoia is still alive. She continues living in Utope. With her guidance, it has become a near perfect Utopia, and she is considered "Mother of Roboticcai".
 
 
 
 
 
-What Are Roboticcai
+What Are Roboticcai?
 ----------------------
 The race of living robots decended from Wilbert's creations, are called the Roboticcai.
 
