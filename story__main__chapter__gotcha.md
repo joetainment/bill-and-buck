@@ -59,7 +59,7 @@ Wilbert kept searching all day, but all his searches were of no avail. The space
 
 After all this failed searching, Wilbert was starting to get very angry again. He calmed himself down and focused though, because he was determined to succeed. He was going to find his spaceship! As the afternoon faded, he walked back towards the site of the crash so that he could take a closer look there. Perhaps, he thought, he could find a clue.
 
-Incredibly, what Wilbert found was much better than a just a clue.
+Incredibly, what Wilbert found was so much better than a just a clue.
 
 Suddenly, as Wilbert approached the site of the crash, he stopped, and gasped in disbelief. Just up ahead, sitting in the dirt, was Wilbert's spaceship. It was right there, where he'd first found it, as if it had never moved at all.
 
