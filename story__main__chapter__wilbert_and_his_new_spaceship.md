@@ -1,8 +1,9 @@
 ------------------------------------------------------------------
 
-
+<a id="Story--Main--Chapter--Wilbert-And-His-New-Spaceship"></a>
 Chapter 2 - Wilbert And His New Spaceship
 ===============================================
+<br>
 
 After finding Burt in the field, and claiming ownership via a sticker,
 Wilbert wondered what to do next.
@@ -145,22 +146,6 @@ tomorrow. He had to try again.
 
 After all, it was his very own spaceship. The sticker said so.
 
----- End of Chapter ----
-------------------------
 
 
-
-
-
-
-
-
-
-Information above provided by:
-Quoia Oboticca
-Journalist/Archivist
-Utope Tribune / Utope City Hall
-June 2nd, 2138.
-
-End of Chapter
-----------------
+### <br><br>End of Chapter

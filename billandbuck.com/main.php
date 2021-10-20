@@ -108,6 +108,8 @@ p{margin:0 0 2em; font 11px;}
     echo "\n" . "<br><br><br><br>" . "\n";
     readfile( 'story__main__chapter__wilbert_and_his_new_spaceship.md.html' );
     echo "\n" . "<br><br><br><br>" . "\n";
+    readfile( 'story__main__chapter__gotcha.md.html' );
+    echo "\n" . "<br><br><br><br>" . "\n";
 
     readfile( 'main__overview__quoia_sign_off.md.html' );
 ?>

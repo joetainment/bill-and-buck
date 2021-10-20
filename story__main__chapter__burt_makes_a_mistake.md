@@ -1,8 +1,9 @@
+-----------------------------------------
+
+<a id="Story--Main--Chapter--Burt-Makes-A-Mistake"></a>
 Chapter 1 - Burt Makes A Mistake
 =========================================
-
-
-<br><br>
+<br>
 
 The start of our story (and really the heart of our story) begins with a little frog named Burt. Though he hadn't been named "Burt" yet, and he wasn't necessarily "little" at the time, nor was he exactly a "frog".
 
@@ -18,18 +19,13 @@ One of the more interesting effects of this was that Burt was rarely the same si
 
 Burt was of *inconsistent size*.
 
+<br>
 
+So...
 
+Burt, the frog-like spaceship, was flying through space, zipping about the galaxies, the way frog-like spaceships often do.
 
-
-
-<br><br><br><br>
-
-Anyway... we should probably get back to our story...
-
-Burt, the frog-like spaceship, was flying through space, zipping about the galaxies, just the way frog-like spaceships often do.
-
-Also, as usual, Burt had been growing and shrinking.  In fact, just moments earlier he'd been a much tinier Burt, exploring much smaller places, since the inner workings of atoms are fun places to play.
+As usual, Burt had been growing and shrinking.  In fact, just moments earlier he'd been a much tinier Burt, exploring much smaller places, since the inner workings of atoms are fun places to play.
 
 Frankly though, Burt was worn out. The entanglings of his tiny playground had been a bit much for Burt. Even though he was now bigger again, and enjoying his exciting trek around the stars, Burt was getting very tired.
 
@@ -49,12 +45,6 @@ As Burt fell, the rugged folds sprung flat, and launched him like a cannonball. 
 
 That's why Burt crashed so hard, and that's why Burt was so badly broken. Crashing into unfolded space time is a lot like riding a skateboard into a brick wall, but at nearly the speed of light.  Things can be expected to break.
 
-<!--
-(A lot of space ships go at relativistic speeds, even when they aren't space folding.
-
- (Remember those relativistic speeds? Well, when you instantly go from surfing space fold, to streaking through the stars, those are the kind of speeds you're hitting, around 299 thousand kilometres per second.) -->
-<!-- (We've long known this and it comes in handy pretty often. Got a problem like a live grenade about to go off? Easy, just feed it to Burt. He'll barely hiccup.) -->
-
 Now Burt is a pretty tough space frog. Always has been... but even tough guys have their limits. Burt was *way* past his, and when you go way past your limits, especially when you do it carelessly, you tend to break.
 
 And so it was, that Burt was broken, and not just any one part of Burt either. Many of his parts were broken.
@@ -68,7 +58,7 @@ Burt's brain was very very broken.
 
 
 
-<br><br><br><br>
+<br><br>
 
 Burt's brain being broken, he wasn't thinking very clearly. Really, he was barely thinking at all. As the damage to his brain reached critical levels, Burt passed out pretty fast. Burt's brain was no longer very useful. It ended up staying passed out, asleep, for quite a while afterwards.
 
@@ -78,17 +68,12 @@ Less fortunately, most of his backups were broken too. Only one (of the hundreds
 
 Only that single computer, had survived intact. It was the most simple and rugged one in Burt's entire body. Now, for the moment at least, it was Burt's only working brain.
 
-<!--
-At the time, this computer didn't really have a name.  But since it was the 18th backup brain in Burt's redundancies, eventually Burt's friend Bill ended up assigning it ended up getting the letter "R"  them all letters later on, , so bill called it B.B.R. for "Backup Brain R".  Bee-bee-arr.  :)   -->
-
 Burt's backup brain was eventually named, Bee-bee-arr, so for now we'll just call it that too.   "Backup Brain R".  B.B.R.    Bee-bee-arr.
 
 
 
 
-
-
-<br><br><br><br>
+<br><br>
 
 
 Burt himself stayed fast asleep, and so, Bee-bee-arr was now doing the thinking on Burt's behalf.
@@ -124,7 +109,7 @@ Really, all things considered, this wasn't a bad place to be. One of the nicest 
 
 
 
-<br><br><br><br>
+<br><br>
 
 By the time Burt finally hit the ground, Bee-bee-arr had used what was left of the brakes, and had mostly slowen Burt down, so it was a pretty soft landing. The gentle dirt of the farm field had a nice new trough, but there wasn't much of a crater.
 
@@ -143,7 +128,7 @@ Bee-bee-arr continued doing its job, sorting out and fixing things so it could w
 
 
 
-<br><br><br><br>
+<br><br>
 
 Burt sat alone in that farm field for quite some time, but he wasn't truly alone, he simply hadn't been discovered yet. All the while, a little boy was nearby, mucking about the farm, which was the boy's home.
 
@@ -165,22 +150,16 @@ This little human, it would eventually turn out, was downright mean.
 
 <br><br>
 
-The little human boy approached Burt, and upon discovery, the boy pulled out a long slip of paper with a sticky coating on its backside. (Burt would later discover that a "sticker" was what it was called.)
+The little human boy approached Burt, and upon reaching his discovery, the boy pulled out a long slip of paper with a sticky coating on its backside. (A "sticker", as Burt would later discover it was called.)
 
-With a slap of his hand, the boy affixed the paper to the side of Burt's Hull. Then, with a wave of his arm, the boy revealed a colorful cylinder, which he promptly used to scribble something onto the sticker.
+With a slap of his hand, the boy affixed the paper to the side of Burt's hull. Then, with a wave of his arm, the boy revealed a colorful cylinder, which he promptly used to scribble something onto the sticker.
 
 Burt was now wearing a sign. Burt had been labeled.
 
-Burt couldn't read them yet, but the paper and its new scribbles had a clear message, one that set the tone for Burt's months to follow. The text on Burt's side now proudly declared a new truth:
+Burt was in no state to read them yet, but the paper and its new scribbles had a clear message, one that set the tone for Burt's months to follow. The text on Burt's side now proudly declared a new truth:
 
 "Property of Wilbert"
 
 
 
-
-
-
-<br><br><br>
-
-End of Chapter
------------------
+### <br><br>End of Chapter
