@@ -141,4 +141,5 @@ There *had* to be something inside didn't there?  Could the ship have really bee
 
 Eventually a very complicated answer would emerge from that question. The answer was in a sense, yes, but also in a sense, no. Whether or not the spaceship had an actual inside was a question that couldn't be answered in any conventional sense. What Wilbert didn't yet understand was that the ship had no single-point at its center. Halfway between both sides of the ship, was really nowhere at all. That region of space simply didn't exist.
 
-However, if the word "inside" refered to the place holding what the ship carried, rather than a place between its walls, then it was true that the inside of that ship was more than Wilbert ever could have imagined.
+However, if the word "inside" refered to the place holding what the ship carried, rather than simply the place between its walls, then it was true that the inside of that ship was more than Wilbert ever could have imagined.
+
