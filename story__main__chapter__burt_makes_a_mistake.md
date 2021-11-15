@@ -35,7 +35,7 @@ Careless flying isn't really a good idea, especially because darting about the g
 
 The thing about galaxies, and even the stars and planets in them, is that there are just so many of them. It's really easy to lose count.  Yep, it can be a real challenge keeping up with all of them. If your space folding gets sloppy, if you fail to account for just one tiny little galaxy off in the corner of the universe...
 
-Oh no!  Your whole plan go sideways real fast,  and well... things break.
+Oh no!  Your whole plan goes sideways real fast,  and well... things break.
 
 Now of course, in day-to-day life, things go wrong and things break all the time. For example: If you're riding a skateboard and you get distracted, you might break something, but it's usually not that bad, because skateboards just don't go that fast.
 
@@ -49,24 +49,20 @@ Now Burt is a pretty tough space frog. Always has been... but even tough guys ha
 
 And so it was, that Burt was broken, and not just any one part of Burt either. Many of his parts were broken.
 
-Burt broke his engines, he broke his radios, he broke his shields, and he broke his sensors... the list goes on and on.  Burt even broke the most important part of all... his brain.
+Burt broke his engines, he broke his radios, he broke his shields, and he broke his sensors... the list went on and on.  Burt even broke the most important part of all... his brain.
 
 Burt's brain was very very broken.
 
 
-
-
-
-
 <br><br>
 
-Burt's brain being broken, he wasn't thinking very clearly. Really, he was barely thinking at all. As the damage to his brain reached critical levels, Burt passed out pretty fast. Burt's brain was no longer very useful. It ended up staying passed out, asleep, for quite a while afterwards.
+Being so injured, Burt wasn't thinking very clearly. Really, he was barely thinking at all. As his damage reached critical levels, it all became too much for Burt, and he passed out unconscious and into a deep sleep. Being asleep, Burt's brain was no longer very useful.
 
-Fortunately like all good spaceship frogs, Burt had a backup brain! Several backups in fact!
+Fortunately like all great spaceship frogs, Burt had a backup brain! Many backups in fact!
 
-Less fortunately, most of his backups were broken too. Only one (of the hundreds of brains Burt had) was still working at all, and even that one was mostly broken.
+Less fortunately, most of his backups were broken too. Only one, out of the hundreds of backups Burt had, was still working at all, and even that one was mostly broken.
 
-Only that single computer, had survived intact. It was the most simple and rugged one in Burt's entire body. Now, for the moment at least, it was Burt's only working brain.
+It was the most simple and rugged backup in Burt's entire body. It was more of a computer than a brain really. Because of it's relative simplicity, it remained at least partially intact. In those moments after the crash, it became Burt's only working intellegence.
 
 Burt's backup brain was eventually named, Bee-bee-arr, so for now we'll just call it that too.   "Backup Brain R".  B.B.R.    Bee-bee-arr.
 
@@ -80,28 +76,28 @@ Burt himself stayed fast asleep, and so, Bee-bee-arr was now doing the thinking 
 
 As Bee-bee-arr began to appraise its situation, it noted that "mostly broken" was still better than "totally broken", so things could have been much worse.
 
-Bee-bee-arr continued to ponder its situation. It looked around through Burt's damaged "eyes".
+Bee-bee-arr continued to ponder its situation. It looked around through Burt's damaged sensors, his "eyes".
 
-The eyes still mostly worked, but things were awfully blurry. Straining to see through the murky depths of Burt's senses, Bee-bee-arr could faintly make out a pale blue dot.
+Simple forms and colors could be seen, but they were awfully blurry. Straining to see through the murky depths of Burt's senses, Bee-bee-arr could faintly make out a pale blue dot.
 
 <!--(The storm of virtual particles washing over Burts face weren't helping either.) -->
 
 A place to land perhaps!
 
-Gently but firmly, using what little strength it could muster from Burt's broken body, Bee-bee-arr fired some half broken engines, and thrusted towards that dot.
+Gently but firmly, using what little strength it could muster from Burt's broken body, Bee-bee-arr fired the engines and thrusted towards that dot.
 
 As it got closer the pale blue dot turned out to be a planet!
 
-So Bee-bee-arr took the next step in Burt's journey... careening, and eventually falling, into what turned out to be a very beautiful world.
+So Bee-bee-arr took the next step in Burt's journey... careening towards, and eventually falling into, what turned out to be a very beautiful world.
 
 Burt fell into a planet that was third from its sun. A planet with clouds and seas, rivers and trees. A planet Burt would later learn was called Earth, and a place Burt would eventually call home.
 
-As Burt blasted down through the Earth's sky, he slowed until he finally crashed into a little farm field...
+As Burt blasted down through the Earth's sky, he slowed until he finally crashed into a little farm field,
 
 in a place known as Vancouver Island, <br>
 in a province called BC, <br>
-in a country called Canada. <br>
-In the year 1995. <br>
+in a country called Canada, <br>
+in the year 1995. <br>
 
 Really, all things considered, this wasn't a bad place to be. One of the nicest places he could have hoped for actually.
 
@@ -111,7 +107,7 @@ Really, all things considered, this wasn't a bad place to be. One of the nicest 
 
 <br><br>
 
-By the time Burt finally hit the ground, Bee-bee-arr had used what was left of the brakes, and had mostly slowen Burt down, so it was a pretty soft landing. The gentle dirt of the farm field had a nice new trough, but there wasn't much of a crater.
+By the time Burt finally hit the ground, Bee-bee-arr had used what was left of the brakes, and had mostly slown Burt down, so it was a pretty soft landing. The gentle dirt of the farm field had a nice new trough, but there wasn't much of a crater.
 
 Burt had crashed about as cleanly as a spaceship frog could be expected to.
 
@@ -121,7 +117,7 @@ Luckily for Burt, the only grown-up humans in the area weren't in any state to c
 
 So there Burt sat, waiting and recovering, healing towards a slightly less dysfunctional state, even if it would take months or years for Burt to feel better again.
 
-It wasn't very exciting, but it wasn't boring either. Burt just slept through the whole process because his brain was still pretty broken.
+It wasn't very exciting, but it wasn't boring either. Burt just slept through the whole process as he slowly got better.
 
 Bee-bee-arr continued doing its job, sorting out and fixing things so it could wake Burt up again when things were ready.
 
@@ -132,11 +128,9 @@ Bee-bee-arr continued doing its job, sorting out and fixing things so it could w
 
 Burt sat alone in that farm field for quite some time, but he wasn't truly alone, he simply hadn't been discovered yet. All the while, a little boy was nearby, mucking about the farm, which was the boy's home.
 
-With muddy boots and squeaky wagon wheels, the boy criss-crossed the farm until one day, he finally stumbled upon the green spaceship. 
+With muddy boots and squeaky wagon wheels, every day the boy criss-crossed the farm until one day, he finally stumbled upon the green spaceship. 
 
-Bee-bee-arr could hear the boy coming. 
-
-Burt was still asleep as the boy approached, but even if Burt had been awake, he was too weak to defend himself or to flee. The most Burt could have done was hope that the little human was friendly.
+Bee-bee-arr could hear the boy coming, though Burt was still fast asleep as the boy approached. Even if Burt had been awake, he was too weak to defend himself or to flee. The most Burt could have done was hope that the little human was friendly.
 
 But alas!
 

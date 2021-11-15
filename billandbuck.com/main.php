@@ -110,6 +110,8 @@ p{margin:0 0 2em; font 11px;}
     echo "\n" . "<br><br><br><br>" . "\n";
     readfile( 'story__main__chapter__gotcha.md.html' );
     echo "\n" . "<br><br><br><br>" . "\n";
+    readfile( 'story__main__chapter__a_prelude_to_the_storm.md.html' );
+    echo "\n" . "<br><br><br><br>" . "\n";
 
     readfile( 'main__overview__quoia_sign_off.md.html' );
 ?>
