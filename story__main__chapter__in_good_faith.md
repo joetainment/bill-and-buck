@@ -49,7 +49,7 @@ The spaceship, which Wilbert had now mentally labeled as BBR (Bee-Bee-Arr), resp
 
 The nature of the spaceship's voice was starting to become clear to Wilbert. He summarized his thoughts, "So...  This spaceship itself is Burt and you are B.B.R, now looking after Burt?"
 
-"Correct," replied BBR
+"Correct," replied BBR.
 
 Still Wilbert wanted to know more, "But why are you looking after him?  Is he in danger?" 
 
