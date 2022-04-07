@@ -69,7 +69,7 @@ Instead of being scared, his visitor (the new raccoon) stood proudly at the bott
 
 The new raccoon was showing off.
 
-Wilbert shook his head, and chucked.  After all the frightening events of the night, this new development really lightened the mood.  Wilbert's visitor looked more comical than dangerous. Really, this colorful raccoon was about the least threatening space alien Wilbert would have imagined.
+Wilbert shook his head, and chucked.  After all the frightening events of the night, this new development really lightened the mood.  Wilbert's visitor looked more comical than dangerous. Really, this colorful raccoon was about the least threatening space alien Wilbert could have imagined.
 
 The raccoon did another little strut, walking back and forth, showing off a little more, and then walked right up to Wilbert and rubbed the side of its body against Wilbert's leg. It may have been a raccoon, but its behavior was much more like that of a typical cat's.
 
