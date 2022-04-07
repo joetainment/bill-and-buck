@@ -113,7 +113,7 @@ p{margin:0 0 2em; font 11px;}
     readfile( 'story__main__chapter__gotcha.md.html' ); bnbEndChap();
     readfile( 'story__main__chapter__a_prelude_to_the_storm.md.html' ); bnbEndChap();
     readfile( 'story__main__chapter__in_spite_of_fear.md.html' ); bnbEndChap();
-    readfile( 'story__main__chapter__first_contact.html' ); bnbEndChap();
+    readfile( 'story__main__chapter__first_contact.md.html' ); bnbEndChap();
     readfile( 'story__main__chapter__whos_that_girl.md.html' ); bnbEndChap();
     readfile( 'story__main__chapter__in_darkness_are_strangers.md.html' ); bnbEndChap();
     readfile( 'story__main__chapter__in_good_faith.md.html' ); bnbEndChap();
