@@ -173,7 +173,7 @@ After a few moments of thought, Wilbert decided to take her in anyway. This also
 
 Wilbert hesitated for a moment as he formulated his next sentence.  Wilbert knew what he was about to say was a real stretch, but he made the request anyway, "I want you to agree that you'll help me with my work, my creations. You'll help me with making things, especially making my spaceship."
 
-Though Wilbert again worried his request would be a tough sell, it actually wasn't.  BBR really had no reason to object. There was no risk to Burt, and BBR knew that Burt would not object as long certain guidelines were followed. Any concerns were very minor so BBR agreed to help Wilbert with his creations.
+Though Wilbert again worried his request would be a tough sell, it actually wasn't.  BBR really had no reason to object. There was no risk to Burt, and BBR knew that Burt would not object as long certain guidelines were followed. Any concerns were very minor, so BBR agreed to help Wilbert with his creations.
 
 "I can certainly provide help for your creative endevours..." replied BBR, "Within my ethical guidelines."
 
