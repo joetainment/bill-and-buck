@@ -227,7 +227,7 @@ The source, the ball of light and energy that had represented BBR, turned out to
 
 Wilbert cried out, though he was more in shock than in real pain. As the shard in his arm dissolved, he rolled sideways away from the bed. Then, he looked back at Remy just soon enough to see a massive second wave of shards falling back down from above.
 
-Wilbert watched in terror as one huge shard crashed right down into Remy. He had to turn away quickly though, and he covered his face as the shards bounced and shattered off of the floor under and around her.
+Wilbert watched in terror as one huge shard crashed right down into Remy. He had to turn away quickly though, and he covered his face as the shards bounced again and shattered off of the floor around her.
 
 Wilbert was lucky, as the second wave of shards mostly missed him, but he worried for Remy.  He immediately rushed over to check on her.
 
