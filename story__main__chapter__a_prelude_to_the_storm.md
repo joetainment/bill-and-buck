@@ -81,7 +81,7 @@ Briefly, Wilbert was overjoyed. He now understood why his spaceship sometimes se
 
 Wilbert figured that if he just waited a little while, the ship would probably return back to its normal size, just as it had before. Then perhaps he could go back to breaking his way inside.
 
-So, Wilbert waited. Since, at this point, he was merely waiting for his spaceship to return the size, Wilbert decided he could have a bite to eat.
+So, Wilbert waited. Since, at this point, he was merely waiting for his spaceship to return to size, Wilbert decided he could have a bite to eat.
 
 Although barns don't normally have much in the way of kitchens, Wilbert was fortunate because his aunt had left the barn overflowing with useful equipment. One of those pieces of equipment was an old refrigerator. Although it looked old as the ages, his refrigerator still kept as cold as ever, so Wilbert stocked it with bits of food he'd smuggled out of his parents' house. (As long as he didn't touch the beer, they didn't really seem to mind.)
 
