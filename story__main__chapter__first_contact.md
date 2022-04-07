@@ -43,7 +43,7 @@ Someone else must have been playing with the cat's things.
 
 Wilbert walked over to his cat’s little corner of the barn.  He didn't want to scare his visitor away though, so he was very careful with his flashlight.
 
-In the edges of its spotlight, Wilbert could discern a bundle of old blankets on a small table where the cat often stepped. When he peered towards the cat’s bed, Wilbert finally saw!
+In the edges of its spotlight, Wilbert could discern a bundle of old blankets on a small table where the cat often slepped. When he peered towards the cat’s bed, Wilbert finally saw!
 
 It was his visitor, in full view, finally staying in one place long enough to be looked at.
 
