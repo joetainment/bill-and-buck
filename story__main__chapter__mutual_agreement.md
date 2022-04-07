@@ -167,7 +167,7 @@ This was touching to Wilbert, and he considered the request. In all honestly, he
 
 After a few moments of thought, Wilbert decided to take her in anyway. This also provided him with an opportunity to make another request of his own.
 
-"Okay... I'll take her in. I'll look after her." said Wilbert, before adding a new condition to his agreement, "but I want one more thing."
+"Okay... I'll take her in. I'll look after her," said Wilbert, before adding a new condition to his agreement, "but I want one more thing."
 
 "What is your request?" asked BBR.
 
