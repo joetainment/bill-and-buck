@@ -93,7 +93,7 @@ Occasionally, Wilbert looked back at his ship while he was eating. It was only a
 
 As Wilbert thought about the size of his spaceship, he decided that every time he had seen it, its size had probably been a little bit different. He hadn't noticed earlier, but he felt confident in retrospect. Sometimes it was slightly bigger, and sometimes it was slightly smaller, but never so much as to be terribly obvious. The difference in size was only obvious when the ship disappeared completely. Other than that it was usually around the size of a motorcycle.
 
-After thinking a little further, Wilbert shook his head and conceded that these observations were tenuous at best. He hadn't observed the ship for very long, so he had no way of being sure any of this stay the same going forward. Perhaps, he wondered, the only thing consistent about the size of the ship was its inconsistency.
+After thinking a little further, Wilbert shook his head and conceded that these observations were tenuous at best. He hadn't observed the ship for very long, so he had no way of being sure that any of this would stay the same going forward. Perhaps, he wondered, the only thing consistent about the size of the ship was its inconsistency.
 
 In reality, the ship tended to have good reasons for why it became any given size. Its size at the moment was soon going to be useful to what was awakening inside.
 
