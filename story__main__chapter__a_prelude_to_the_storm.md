@@ -17,7 +17,7 @@ The wind was building to a howl, but since it wasn't so just yet, Wilbert decide
 
 It was an October evening, and it was several days after Wilbert had moved his spaceship into his barn. Since then, things had not been going well for Wilbert.
 
-Wilbert was dealing with very two different problems, and both of these problems were extrordinarily irritating.
+Wilbert was dealing with very two different problems, and both of these problems were extraordinarily irritating.
 
 First there was the problem of his spaceship's variable presence.  Just like in the field before, his spaceship occasionally disappeared, going missing from his barn.
 
