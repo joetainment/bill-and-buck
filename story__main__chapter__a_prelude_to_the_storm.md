@@ -131,7 +131,7 @@ Wilbert stood in front of this void and marvelled in disbelief.  Since it appear
 
 "Noooooo... "  Wilbert whined as he frantically ran his fingers all across the darkened section.
 
-The only thing his fingers felt was more of the same. He could feel not one bit of difference between the shiny green metal, and this new void-like area. It was all just perfectly smooth, and sadly, it was perfectly impervious as well.
+The only thing his fingers felt was more of the same. He could feel no difference between the shiny green metal, and this new void-like area, except that the new area was even more slippery. It was all just perfectly smooth, and sadly, it was perfectly impervious as well.
 
 Wilbert was devastated. He had wished for a sort of doorway, but what appeared was at best a window. Worse yet, it was about as useless as any window could be, since nothing could be seen on the other side.
 
