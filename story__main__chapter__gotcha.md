@@ -65,7 +65,7 @@ Suddenly, as Wilbert approached the site of the crash, he stopped, and gasped in
 
 Wilbert ran back to his ship, cheering and jumping in celebration.
 
-Some aspect of the ship's new arrangement seem odd however. Even though Wilbert couldn't tell exactly what had changed, the scene was a little different. As Wilbert looked carefully, he noticed that the spaceship no longer appeared to fit neatly into the dirt. At least, not quite so neatly as it had fit earlier.
+Some aspect of the ship's new arrangement seemed odd however. Even though Wilbert couldn't tell exactly what had changed, the scene was a little different. As Wilbert looked carefully, he noticed that the spaceship no longer appeared to fit neatly into the dirt. At least, not quite so neatly as it had fit earlier.
 
 Wilbert's mind was racing, trying to understand how and why the spaceship could have gone away, and how it could have come back again.
 
