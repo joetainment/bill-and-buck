@@ -103,7 +103,7 @@ Wilbert thought he understood, but asked just to confirm, "You mean the growing 
 
 Again, Wilbert asked about the reasoning, "Ok, so you made Burt bigger and smaller, but why?"
 
-"The actions were part of my attempts at reaching some level of control. Unfortunately it was counterproductive.  My control over Burt's body is now even less than it was during the crash. I have been getting worse ever since."
+"The actions were part of my attempts at reaching some level of control. Unfortunately it was counterproductive.  My control over Burt's body is now even less than it was during the crash. I have been getting worse ever since. Fortunately, there was some utility in the timing of the sizing, because the sizes facilitated Remy's exit, her return, and your own entry following her."
 
 The voice of Wilbert's spaceship, BBR, was beginning to seem less authoritative and more vulnerable. She continued, "Of little relevance is the growing and shrinking. In the end, its only use turned out to be the accommodation of Remy's exit.  For Burt himself, these efforts have proved pointless. Not only have I failed to take action, but I have failed to connect the senses as well. I still cannot even see what lies beyond Burt's body."
 
