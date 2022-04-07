@@ -113,7 +113,7 @@ Burt had crashed about as cleanly as a spaceship frog could be expected to.
 
 Even though Burt had slowed down quite a bit, the crash was still pretty loud. The dominant creatures living in the area, (humans they were called), could have heard it even in the farm house across the the fields.
 
-Luckily for Burt, the only grown-up humans in the area weren't in any state to care, as they've been drinking for quite some time. Nobody would come running to check up on the loud crash, because no one could be bothered to.
+Luckily for Burt, the only grown-up humans in the area weren't in any state to care, as they'd been drinking for quite some time. Nobody would come running to check up on the loud crash, because no one could be bothered to.
 
 So there Burt sat, waiting and recovering, healing towards a slightly less dysfunctional state, even if it would take months or years for Burt to feel better again.
 
