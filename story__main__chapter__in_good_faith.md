@@ -77,7 +77,7 @@ The voice's ball of light pulsed, and a cone of light briefly shone upon Remy in
 
 "This is a home, a home for our passenger, 'Remy' as you call her. This space was made to be manipulated by her, and is one of the only parts of Burt that hasn't become totally uninhabitable. Though nearly everything here was lost, I was able to protect her in that small bed she lies upon. The rest of her surroundings are gone though, lost somewhere far off in this hyperbolic space."
 
-Wilbert didn't quite understand what hyperbolic space was precisely, but he knew a little about it from reading astronomy books about the curvature of space, and Wilbert got the distinct suspicion that it had something to do with his earlier turning in circles. He decided not to focus on that though. Instead he continued his questions about Remy.
+Wilbert didn't quite understand what hyperbolic space was precisely, but he knew a little about it from reading astronomy books about the curvature of space, and Wilbert got the distinct suspicion that it had something to do with his earlier turning in circles. He decided not to focus on that though. Instead, he continued his questions about Remy.
 
 "But why did she bring me here?" Wilbert asked, still quite confused, though gradually making sense of his situation.
 
