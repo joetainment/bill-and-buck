@@ -181,7 +181,7 @@ Wilbert wondered if those guidelines would be a concern, but he didn't want to p
 
 "You promise? You'll help me make my inventions?"
 
-"Yes," BBR agreed, "Is this agreement now acceptable."
+"Yes," BBR agreed, "Is this agreement now acceptable?"
 
 Wilbert was ecstatic, and responded almost instantly, "Oh yeah, we got a deal! If you give me stuff and help me build, I'll definitely look after Remy."
 
