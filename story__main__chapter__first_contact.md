@@ -61,7 +61,7 @@ Wilbert continued to study the appearance of his visitor. Then after a few momen
 
 Squeak, squeak…
 
-With a subtle change of shape, the visitor's feet, or possibly its hand, were now holding the toy, and squeezing it gently.
+With a subtle change of shape, the visitor's feet, or possibly its hands, were now holding the toy, and squeezing it gently.
 
 The visitor then released the toy and pushed it forward.  With a little shove, the rubber ducky was rolled in Wilbert’s direction.
 
