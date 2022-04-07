@@ -141,7 +141,7 @@ BBR conceded the point, "In truth, there is no reason you should believe me. You
 
 There was a long awkward silence, but in his stalling, Wilbert was clever. Before long he had a powerful idea. It was an idea that would have unimaginable ramifications.
 
-With this idea, Wilbert get something from BBR, by proposing a hypothetical, before asking one more very leading question.
+With this idea, Wilbert would get something from BBR, by proposing a hypothetical, before asking one more very leading question.
 
 "Let's say, just for the moment, that I trust you. That doesn't mean I have to help you.  No!   You have to tell me...  *Why* should I?"
 
