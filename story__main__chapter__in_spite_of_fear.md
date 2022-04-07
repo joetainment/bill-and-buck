@@ -15,7 +15,7 @@ In fact, Wilbert hadn't really worked up the courage to do anything for the last
 
 Yes, Wilbert was hiding, or more precisely, he was cowering, under a corner of his desk. A sort of "cave" was formed by the desk's thick backing panels, and this made the space underneath feel like a comforting shelter to Wilbert.
 
-There in his cave, Wilbert gripped a flashlight tightly in his hands. When the power had gone out, all the lights in the barn had suddenly gone dark, so the flashlight was now the only reason Wilbert could see anything at all.  The only other source of light was the occasional flashes of lightning outside, and that lightning scared Wilbert even more than the darkness.
+There in his cave, Wilbert gripped a flashlight tightly in his hands. When the power had gone out, all the lights in the barn had suddenly gone dark, so the flashlight was now the only reason Wilbert could see anything at all.  The only other source of light were the occasional flashes of lightning outside, and that lightning scared Wilbert even more than the darkness.
 
 Wilbert knew that if he wanted more light, he'd have to fuel the generator and get it set up, but he just wasn't ready to do that yet. He lacked the courage to leave his hiding place. So instead, Wilbert just sat in waiting, hoping for the storm to settle down.
 
