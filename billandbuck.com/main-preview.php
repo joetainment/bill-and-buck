@@ -98,28 +98,30 @@ p{margin:0 0 2em; font 11px;}
 <div style="text-align:left; padding-left 40px;  padding-right: 40px;  max-width: 80ch;" >
 
 <?php
-    function bnbChapBr(){
-        echo "\n" . "<br><br><br><br>" . "\n";
-    }
-    function bnbEndChap(){
-        bnbChapBr();
-    }
+  
     readfile( 'main__overview__intro.md.html' );
 
 
-    readfile( 'story__main__chapter__burt_makes_a_mistake.md.html' ); bnbEndChap();
-    readfile( 'narrators_notes__wilbert_the_active_initiator.md.html' ); bnbEndChap();
-    readfile( 'story__main__chapter__wilbert_and_his_new_spaceship.md.html' ); bnbEndChap();
-    readfile( 'story__main__chapter__gotcha.md.html' ); bnbEndChap();
-    readfile( 'story__main__chapter__a_prelude_to_the_storm.md.html' ); bnbEndChap();
-    readfile( 'story__main__chapter__in_spite_of_fear.md.html' ); bnbEndChap();
-    readfile( 'story__main__chapter__first_contact.html' ); bnbEndChap();
-    readfile( 'story__main__chapter__whos_that_girl.md.html' ); bnbEndChap();
-    readfile( 'story__main__chapter__in_darkness_are_strangers.md.html' ); bnbEndChap();
-    readfile( 'story__main__chapter__in_good_faith.md.html' ); bnbEndChap();
+    readfile( 'story__main__chapter__burt_makes_a_mistake.md.html' );
+    echo "\n" . "<br><br><br><br>" . "\n";
+    readfile( 'narrators_notes__wilbert_the_active_initiator.md.html' );
+    echo "\n" . "<br><br><br><br>" . "\n";
+    readfile( 'story__main__chapter__wilbert_and_his_new_spaceship.md.html' );
+    echo "\n" . "<br><br><br><br>" . "\n";
+    readfile( 'story__main__chapter__gotcha.md.html' );
+    echo "\n" . "<br><br><br><br>" . "\n";
+    readfile( 'story__main__chapter__a_prelude_to_the_storm.md.html' );
+    echo "\n" . "<br><br><br><br>" . "\n";
+    readfile( 'story__main__chapter__in_spite_of_fear_a_discovery.md.html' );
+    echo "\n" . "<br><br><br><br>" . "\n";
+    readfile( 'story__main__chapter__first_contact.md.html' );
+    echo "\n" . "<br><br><br><br>" . "\n";
+    readfile( 'story__main__chapter__whos_that_girl.md.html' );
+    echo "\n" . "<br><br><br><br>" . "\n";
+
     readfile( 'main__overview__quoia_sign_off.md.html' );
 ?>
-
+  
   <script src="boilerplate/js/vendor/modernizr-3.11.2.min.js"></script>
   <script src="boilerplate/js/plugins.js"></script>
   <script src="boilerplate/js/main.js"></script>

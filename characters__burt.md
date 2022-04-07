@@ -3,6 +3,8 @@ Burt - The Frog Of Inconsistent Size
 
 An alien Robii, the most consistency thing about Burt is his inconsistency.
 
+Burt isn't even made of matter, he is made of forces simulating matter.
+
 Burt is even of inconsistent size.
 
 Burt is somehow of inconsistent location too. No one really sees him teleport anywhere. He just shrinks to being unobservable, and shows up growing elsewhere. He follows characters around and shows up inthe strangest places.

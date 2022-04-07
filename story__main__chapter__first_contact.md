@@ -1,0 +1,120 @@
+------------------------------------------------------------------
+
+<a id="Story--Main--Chapter--First-Contact"></a>
+Chapter 6 - First Contact
+======================
+<br>
+
+Wilbert wasn’t precisely sure what was happening in his barn, but he was pretty sure that he wasn’t alone.  After he turned around to face North, it became even more obvious. Someone else was in there with him.
+
+There were little scratching sounds coming from behind the shelves, and banging sounds from the crates. Wilbert could hear the rattling of his possessions being mulled through.
+
+The few motions he could make out were fast, then paused, then fast again. They were also back and forth, all over the place.  A shelf would shake over to the left, and then moments later, another shelf would shake over to the right.
+
+The real giveaway though, the thing that made Wilbert sure there was life back there, was the sounds of pattering feet, and those sounded nothing like those of a man’s footsteps.  The pattering was wild and rapid. It was too fast to be human.
+
+The footsteps sounded more like an animal's, but not like any animal Wilbert had ever encountered.  Wilbert also knew there wasn’t much back there that would be interesting to animals. The piles of junk were mostly machines, tools, and electronics.
+
+It seemed safe to conclude that it wasn’t a raccoon. Whoever was back there, they were not a local of his farm.
+
+Whoever was back there must have been small too, small enough to stay hidden from view. All of the shuffling around was happening where a tall person would have been easy to spot. However, a shorter person would have been mostly obscured from view. There were just too many things in the way.
+
+Wilbert considered the possibility of his visitor being very small. A tiny hidden visitor didn’t seem so terrible to Wilbert. It was a little comforting actually.  If it had been a giant monster back there, Wilbert would have been a lot more worried. Yes, it certainly helped that the visitor was probably very small.
+
+Wilbert realized that he was a lot less afraid than he probably should have been. Surprisingly, the storm still scared him more than the visitor. 
+
+In fact, it was quite possible that Wilbert was the scary one.  Any visitor would have been out of place in a dark and unknown world. To any such visitor, Wilbert might seem to be the scary stranger.
+
+So, Wilbert decided to be slow and careful.  If he didn’t threaten the visitor, then hopefully the visitor wouldn’t threaten him.
+
+With soft steps, Wilbert proceeded towards the North side of the barn, under the loft, to the storage area where the sounds were coming from. He made his way between the shelves, attempting to follow the sounds. It was hard to follow them though, because the sounds were so scattered.
+
+Finally, the source of the sounds stopped moving around so much. Whatever was making the sounds seemed to have settled into the Northwest corner of the barn, so Wilbert followed.
+
+As he closed in, he heard the most unexpected sounds.
+
+Squeak…  squeak…     jingle,   jungle….    ding, ding…
+
+Wilbert paused for a moment, and actually chuckled slightly.  The sounds were very recognizable. In fact, he heard them pretty often. They were the sounds of his cat’s toys.
+
+Wilbert’s cat wasn’t around though, at least not right there and not right then.  Even if the cat was around, his cat surely would have been scared away by all the banging and knocking going on.
+
+Someone else must have been playing with the cat's things.
+
+Wilbert walked over to his cat’s little corner of the barn.  He didn't want to scare his visitor away though, so he was very careful with his flashlight.
+
+In the edges of its spotlight, Wilbert could discern a bundle of old blankets on a small table where the cat often stepped. When he peered towards the cat’s bed, Wilbert finally saw!
+
+It was his visitor, in full view, finally staying in one place long enough to be looked at.
+
+This was, by far, the strangest sight Wilbert had ever seen. Wilbert’s visitor was very small, about the same size as his cat. However, Wilbert’s visitor looked nothing like a cat.
+
+Instead the visitor simply looked like a ball of water.  Not a puddle of water though, but more like a bowl of water without the bowl. As Wilbert watched, the water ball rippled and waved, its edges showing a vaporish haze.
+
+The ball of water slowly rolled a little, turning itself around in a way that seemed to face towards Wilbert. The very shape of the ball seemed to flatten somewhat as it did, as though forming a common mirror.
+
+As Wilbert looked at his visitor, he got the distinct impression that his visitor looked back at him.
+
+Although this watery visitor was mostly round, it wasn’t a sphere, and it was not featureless either.  At its base, many smaller little rounded blobs protruded and supported it above the floor. They appeared to be its feet.
+
+Wilbert continued to study the appearance of his visitor. Then after a few moments, the visitor moved towards one of the cat's toys. It was a small squeaking rubber ducky from Wilbert’s infancy.
+
+Squeak, squeak…
+
+With a subtle change of shape, the visitor's feet, or possibly its hand, were now holding the toy, and squeezing it gently.
+
+The visitor then released the toy and pushed it forward.  With a little shove, the rubber ducky was rolled in Wilbert’s direction.
+
+Wilbert was careful not to move too fast, as he did not want to startle his visitor. Kneeling down, Wilbert picked up the rubber ducky, and slowly lifted it up. 
+
+Squeak, squeak…
+
+Wilbert squeaked the ducky just as his visitor had, before putting the ducky back on the floor.
+
+In response, the visitor again did something similar.
+
+Ding, ding…     the visitor shook another one of the cat’s toys. This time it was a tiny little bell.  Just as before, the visitor pushed the bell towards Wilbert afterward.
+
+So again, Wilbert picked up what he’d been given.
+
+Ding, ding…    Wilbert shook the little bell, and Wilbert started to realize what was going on.
+
+This was a conversation.
+
+Wilbert wasn’t normally very talkative.  He’d not generally had pleasant experiences with others, and during the rare occasions that Wilbert spoke out, it was often in anger.
+
+Communication wasn’t something Wilbert was very good at, so he seemed poorly suited to be humanity's first contact with an alien race.
+
+Wilbert considered that perhaps a simple introduction was all that was needed. This part of the conversation seemed simple enough, so Wilbert spoke to his guest.
+
+“I am Wilbert”, he said, mentally noting that these were humanity’s first words to the wider inhabitants of the universe.
+
+Then, after speaking, Wilbert waited for a response.
+
+Silence…
+
+Wilbert’s visitor, perhaps now better described as Wilbert’s guest, said nothing in return.
+
+"Maybe," Wilbert thought, “Maybe this visitor doesn’t speak.”
+
+Instead of saying anything, the visitor cautiously walked around and slowly appeared to look over all the little trinkets in the cat’s corner. Finally it came upon another toy, a stuffed plush cat.
+
+The plush cat was mostly orange, accented by purple and pink highlights. It's size was about the same as a real cat's, which also meant it was around the same size as Wilbert's visitor. Around the plush cat's neck was a collar reading, "Ms. Kitty".
+
+The visitor slowly lifted the plush cat, and tumbled it around, appearing to examine it from all sides. Then, the visitor put it back down, and stepped back slightly.
+
+Wilbert was amazed by what happened next.
+
+Slowly the visitor started to change.  It’s similarity to water became less and less, and where it had been clear and flowing, it gradually became colorful and solid. Soon enough, Wilbert was no longer looking at a watery blob. Instead, he was looking at a ball, one that was fluffy, orange, and purple, just like the stuffed cat.
+
+The ball shook a little, and then rocked back and forth gently. As it rocked, it gradually did so farther and farther, until it was rolling from side to side. 
+
+Soon, within a minute or so, there was a fluffy little ball rolling around Wilbert's barn. This little rolling creature was probably the cutest thing Wilbert had ever seen.
+
+Rolling around, it seemed to explore its surroundings, but it stayed back from Wilbert. Since it was in the corner of the barn, and Wilbert was in its way, it didn’t have a lot of room to move around. It didn’t need to roll past Wilbert though.
+
+Instead, it just rolled right through the west wall.
+
+
+
+### <br><br>End of Chapter

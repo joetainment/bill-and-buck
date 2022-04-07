@@ -15,9 +15,20 @@ Early on he is an absolute extreme pessimist.  A stick in the mud.  His attitude
 
 Also early in life, was often locked in  a  room, and had nothing but a VCR and some tapes, so he watched home movies of Wilbert and his family.
 
-His beanie spins counterclockwise because he’s a rebel and he wants people to know it 
+His beanie spins counterclockwise because he’s a rebel and he wants people to know it.
 
-Bill's story arc has him go from being totally pessimistic and bitter to being a cautious optimist. He goes from anger to peace and enlightenment.
+Bill's story arc has him go from being totally pessimistic and bitter to being a cautious optimist. He goes from anger to peace and enlightenment.  By the very end he is somewhat like Yoda in Star Wars.
+
+Like Yoda, Bill chooses to "leave".  (Which *can* be interpreted as his death.)
 
 Ultimately Bill works together with a redemption seeking Wilbert in saving the universe, quite some time before Bill goes away.
+
+
+"Keeping it real"
+After their second rebuild, (the one Wilbert designed and Jake initiated)
+Bill only does minor work on the Robotticai.
+Doesn't change their bodies that much, even though he could, decides not to.
+Only near the very end just before he leaves,
+does he give "Captain Buck" a very significant upgrade.
+
 

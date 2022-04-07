@@ -1,0 +1,40 @@
+The Land Yaught
+=======================
+
+Wilbert's Main Vehicle, Pre UFO
+
+
+Stolen from Wilbert by Bill and Buck during their escape. Bill tries to steal the UFO but can't figure it out. (He is able to temporarily disable it though, long enough that Wilbert can't chase him and Buck as they escape)
+
+
+Locomotion Methods
+======================
+Can sort of fly, but it's super clunky and clumsy, develops problems quickly so shouldn't be used often or for long.
+Can hover better, hovers over both land and water, but hovering only a little better than flying, still not great, and shouldn't be used for long
+Floats in water well, works great as a boat
+Drives amazing well, combo with semi-hover allows in to not toally destroy everything beneath
+Without any hover enabled, is crazy heavy and flattens everything under it. Leaves insane tred marks.
+
+Layout
+=================
+*Very* large interior, actually arbitrarily large, but only certain parts are developed, so it isn't *that* big.  Bill builds more and adds to it over time.
+Main sections are:
+  cockpit (not super big, but kinda like millenium falcon, two main seats, one pedastal on between, which burt/remy/etc stand on sometimes) and additional seating behind them, seats further back are on slightly raised up steps, so they can view over shoulder on those in front seats
+  cargo/shuttle bay
+    has hot-swappable reconnectable corridors entry way doors
+    those swappable doors can be "dialed" to connect to other doors
+  ...and connecting too..
+  the corridors
+    Contains many mini universes inside of it's hyperbolic space
+    doors/corridors like hall-of-mirrors
+    Bill doesn't really understand any of this very well
+  engineering/reactor area
+  
+
+
+
+
+
+
+After Bill leaves, in future Utope
+Quoia has the land yaught
