@@ -33,7 +33,7 @@ Finally, the source of the sounds stopped moving around so much. Whatever was ma
 
 As he closed in, he heard the most unexpected sounds.
 
-Squeak…  squeak…     jingle,   jungle….    ding, ding…
+Squeak, squeak...     jingle,   jingle...    ding, ding...
 
 Wilbert paused for a moment, and actually chuckled slightly.  The sounds were very recognizable. In fact, he heard them pretty often. They were the sounds of his cat’s toys.
 
