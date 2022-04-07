@@ -125,7 +125,7 @@ Wilbert looked on excitedly, expecting to see something inside the circle. Inste
 
 The circular gap between the panels, was becoming a void of blackness, the likes of which Wilbert had never seen.
 
-This new shape was more than just a darkness. It was a kind of perfect emptiness. Nothing whatsoever could be seen between the panels. The entire area was completely devoid of any light.  It was an emptiness that was darker than dark, and it looked as though it were an opening into an infinite expanse of space, an exspance containing nothing at all.
+This new shape was more than just a darkness. It was a kind of perfect emptiness. Nothing whatsoever could be seen between the panels. The entire area was completely devoid of any light.  It was an emptiness that was darker than dark, and it looked as though it were an opening into an infinite expanse of space, an expance containing nothing at all.
 
 Wilbert stood in front of this void and marvelled in disbelief.  Since it appeared to be a hole, he thought that he would be able to reach into it, and with the utmost of caution, he slowly raised his hand and pointed a finger towards the void. Slowly, he inched his finger forward, but then, just as he reached the gap, he bumped the tip of his finger aginst what felt like a solid surface.  Rather than an empty void, what he felt was every bit as solid as the shiny hull before.
 
