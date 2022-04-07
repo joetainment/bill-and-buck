@@ -20,7 +20,7 @@ As he walked he looked around at many of the farm's other fixtures. All sorts of
 
 The entire farm had been left to Wilbert's parents, but they were never farmers. They had no interest in farming. They didn't even bother to find someone else to do the farming. The whole farm just sat there, wasting away.
 
-As Wilbert marched along he passed his playground, and then finally looked ahead to the one building that was still very much in use. It was an old barn, and it was a place that was deeply special to Wilbert. It was Wilbert's workshop, nd it had been so ever since his aunt had left it to him.
+As Wilbert marched along he passed his playground, and then finally looked ahead to the one building that was still very much in use. It was an old barn, and it was a place that was deeply special to Wilbert. It was Wilbert's workshop, and it had been so ever since his aunt had left it to him.
 
 Wilbert *loved* his workshop. Of evey place on the farm, it was his favorite.
 
