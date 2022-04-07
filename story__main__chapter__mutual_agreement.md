@@ -1,13 +1,8 @@
-
-------------------------------------------------------------------
 <a id="Story--Main--Chapter--Mutual-Agreement"></a>
 Chapter 10 - Mutual Agreement
 ======================
 <br>
 
-
-Chapter - Mutual Agreement
-===============================
 
 Remy Raccoon rested drowsily on her bedding, surrounded by the mostly empty void that was her home.
 
