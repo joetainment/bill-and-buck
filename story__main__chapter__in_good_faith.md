@@ -36,7 +36,7 @@ OK, OK... thought Wilbert, trying to mentally sort through everything he'd just 
 
 The voice of Wilbert's spaceship clarified, "This is true, for I am not truly Burt. I am only his representative, and his temporary guardian. Of all Burt's thinking systems, I am the last left functional."
 
-Wilbert's question repeated the idea in his own words, "Thinking system? So are you one of Wilbert's... brains?"
+Wilbert's question repeated the idea in his own words, "Thinking system? So are you one of Burt's... brains?"
 
 The spaceship confirmed, "In a sense, perhaps. I am the eighteenth in my particular family of coprocessor systems, meant to take control in the event of Burt's injury."
 
