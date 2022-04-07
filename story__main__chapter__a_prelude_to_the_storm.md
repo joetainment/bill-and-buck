@@ -25,7 +25,7 @@ It was very unclear to Wilbert why or how the spaceship kept disappearing. Whate
 
 Fortunately though, Wilbert's concern over these disappearances was minor. It wasn't much of a problem, because just as before, when it disappeared in the field, the spaceship always seemed to come back again. So far, all of its disappearances had been fairly short lived.
 
-The other problem Wilbert faced was the more serious concern. The reason it was so serious and frustrating was because it locked Wilbert in a sort of standstill. It blocked all the plans was making for his spaceship.
+The other problem Wilbert faced was the more serious concern. The reason it was so serious and frustrating was because it locked Wilbert in a sort of standstill. It blocked all of the plans he was making for his spaceship.
 
 When he first captured the ship, Wilbert had been so excited and filled with hope. He even had pride in what he’d accomplished. After all, not just any kid could bring home a spaceship.
 
