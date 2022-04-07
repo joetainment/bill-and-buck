@@ -47,7 +47,7 @@ B... B... R... ? "
 
 The spaceship, which Wilbert had now mentally labeled as BBR (Bee-Bee-Arr), responded with indifference. "If you wish. Though, in spirit, I am more of a computational system than a brain. My actual workings are nothing like those of Burt's. I am quite deterministic. In fact, it is only my relative simplicity that has allowed me to continue operating as Burt's guardian."
 
-The nature spaceship's voice was starting to become clear to Wilbert. He summarized his thoughts, "So...  This spaceship itself is Burt and you are B.B.R, now looking after Burt?"
+The nature of the spaceship's voice was starting to become clear to Wilbert. He summarized his thoughts, "So...  This spaceship itself is Burt and you are B.B.R, now looking after Burt?"
 
 "Correct," replied BBR
 
