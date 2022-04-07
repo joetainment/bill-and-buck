@@ -117,6 +117,7 @@ p{margin:0 0 2em; font 11px;}
     readfile( 'story__main__chapter__whos_that_girl.md.html' ); bnbEndChap();
     readfile( 'story__main__chapter__in_darkness_are_strangers.md.html' ); bnbEndChap();
     readfile( 'story__main__chapter__in_good_faith.md.html' ); bnbEndChap();
+    readfile( 'story__main__chapter__mutual_agreement.md.html' ); bnbEndChap();
     readfile( 'main__overview__quoia_sign_off.md.html' );
 ?>
 
