@@ -71,7 +71,7 @@ The sparkling path went no further, and what Wilbert saw ahead was only an infin
 
 Without knowing what else to do, Wilbert decided to call out,  "Remy!  ...Remy, where are you?"
 
-Within a few moments Remy reappeared. She was upside down, but in a slow tumble, descending from above and in front of Wilbert. It was as if Remy were rolling down a flight of stairs, but of course, there were no stairs. There was only the end of the sparkly path. As she tumbled down to Wilberts level, Remy uncurled her paws, and set herself upright on the sparkly floor.
+Within a few moments Remy reappeared. She was upside down, but in a slow tumble, descending from above and in front of Wilbert. It was as if Remy were rolling down a flight of stairs, but of course, there were no stairs. There was only the end of the sparkly path. As she tumbled down to Wilbert's level, Remy uncurled her paws, and set herself upright on the sparkly floor.
 
 After stabilizing her balance, Remy walked ahead of Wilbert. Then she rubbed her little paws on the floor. Its sparkling increased and the path extended just a little farther. In the darkness, along that last bit of the path, was revealed a small pile of strange but soft looking objects.
 
