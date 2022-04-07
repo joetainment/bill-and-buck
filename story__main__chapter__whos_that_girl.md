@@ -77,7 +77,7 @@ The raccoon did another little strut, walking back and forth, showing off a litt
 
 Wilbert knelt down to take a closer look at the new raccoon.
 
-It was adorable. In many ways it looked almost like a cartoon character, but its facial expressions seemed a tiny bit human, in a way. All in all, its appearance was a strange blend between a human, a plush cartoon cat, and a raccoon.
+It was adorable. In many ways it looked almost like a cartoon character, including its very expressive facial expressions. All in all, its appearance was a strange blend between a plush cartoon cat and a raccoon.
 
 Wilbert noticed the pinkish lips of the raccoon, the colorful claws (or fingernails), and the long eyelashes. All of which were very similar to "Ms. Kitty", the plush cat. Like that toy, this new raccoon looked distinctly feminine.
 
