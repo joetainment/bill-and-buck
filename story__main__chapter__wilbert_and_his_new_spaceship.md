@@ -42,7 +42,7 @@ It certainly didn't feel lightweight, but Wilbert was thrilled, because at least
 
 This made Wilbert even more excited, and so he resumed lifting. He thought he would be able to move the ship away from the pile of dirt, but when he pushed harder, the ship slowed down. Wilbert tried very hard to lift it with all of his might, but it didn't work. Somehow the spaceship just seemed to get heavier the harder he tried. As the spaceship gradually became heavier, Wilbert's muscles got very tired from lifting, so he stopped, and the spaceship slowly began sinking back towards the dirt.
 
-After resting for a few minutes, Wilbert tried to lift the spaceship again, but the result was exactly the same. Every time Wilbert lifted up the spaceship, if would rise easily at first, but then get heavy and sink back down again. If he lifted harder or faster, the spaceship would only become heavier and more difficult to move.
+After resting for a few minutes, Wilbert tried to lift the spaceship again, but the result was exactly the same. Every time Wilbert lifted up the spaceship, it would rise easily at first, but then get heavy and sink back down again. If he lifted harder or faster, the spaceship would only become heavier and more difficult to move.
 
 Wilbert kept trying though, and through his persistence, he eventually figured it out. The faster and harder he tried to move the spaceship, the heavier it got. So, he eased up and tried to keep it moving very slowly.
 
