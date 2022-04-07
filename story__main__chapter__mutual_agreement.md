@@ -187,7 +187,7 @@ Wilbert was ecstatic, and responded almost instantly, "Oh yeah, we got a deal! I
 
 BBR confirmed, "Then it is agreed. We have an arrangement."
 
-BBR was quite satisfied, as she calculated that the arrangement would be of great benefit to both of them. Later, it would turn out that BBR's judgement was in fact correct. Even if there would eventually be some complications BBR didn't anticipate, the arrangement would ultimately be in Burt's best interest.
+BBR was quite satisfied, as she calculated that the arrangement would be of great benefit to both of them. Later, it would turn out that BBR's judgement was in fact correct. Even if there would eventually be some complications BBR didn't anticipate, the arrangement would ultimately be in Burt's best interest. It would in fact lead to the development of those who would ultimately be of the greatest importance to Burt, those Burt would eventually come to consider family.
 
 Thus, in mutal agreement the arrangement was made. In the future it was to be widely known simply as "The Arrangement". Although neither Wilbert nor BBR truly understood its ramifications at the time, The Arrangement was to become the core basis of world history going forward.
 
