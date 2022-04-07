@@ -147,7 +147,7 @@ With this idea, Wilbert would get something from BBR, by proposing a hypothetica
 
 BBR understood what was required. Her voice took a more humble tone, attempting to disarm Wilbert, and she replied.
 
-"I have no immediate answer. Instead, perhaps we can assist each other, acting in good faith. So I must ask, in return for your assistance...  What do you want?"
+"I have no immediate answer. Instead, perhaps we can assist each other, acting in good faith. So I must ask, in return for your assistance...  What do you ask?"
 
 This offer, given so easily, was unexpected by Wilbert. He'd imagined more resistance. His plan was already working better than he'd hoped.
 
