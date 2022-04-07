@@ -53,7 +53,7 @@ Once inside the tunnel, Wilbert noticed another interesting sensation.  It was s
 
 This actually made sense to Wilbert, because he knew that an expanding space would be filled by the atmosphere of its surroundings. It was elementary really, the basics of atmospheric pressure.
 
-Wilbert crawled further forward, but he noticed that as he got farther along, he was reaching wider parts of the tunnel. Soon he had enough room that he was able to stand right up. Looking around, he observed the tunnel's ceiling fading away into the darkness, it's walls widening. The path before him, the floor, was disconnecting from the walls. narrower.  Still, in the distance, he could see that the floor did continue.
+Wilbert crawled further forward, but he noticed that as he got farther along, he was reaching wider parts of the tunnel. Soon he had enough room that he was able to stand right up. Looking around, he observed the tunnel's ceiling fading away into the darkness, it's walls widening. The path before him, the floor, was disconnecting from the walls.  Still, in the distance, he could see that the floor did continue.
 
 Marching on, Wilbert was well aware that there was far too much space in the tunnel.  Even if the spaceship had been a little larger, this tunnel was much too huge to fit inside the spaceship. Wilbert shook his head again in disbelief, but proceeded forward anyway.
 
