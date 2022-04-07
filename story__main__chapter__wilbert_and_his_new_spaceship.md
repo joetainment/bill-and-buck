@@ -24,13 +24,13 @@ float in the air.
 
 Wilbert looked around, trying to make sense of the situation and he noticed something he hadn't yet paid much attention to.
 
-Behind this object, there was a huge trail in the dirt. Wilbert started to realize that the object must've come through that dirt. As Wilbert looked back along that path, he thought about it more and more as he began to realize what had happened.
+Behind this object, there was a huge trail in the dirt. Wilbert started to realize that the object must have come through that dirt. As Wilbert looked back along that path, he thought about it more and more as he began to realize what had happened.
 
 "Whoa..." Wilbert actually said out loud, as he decided the object had probably fallen out of the sky, crash-landing in his field.
 
 As he thought about it more and more, he even began to understand that this object was probably a spaceship.
 
-Wilbert excitedly looked back and forth over the spaceship and then he noticed that a pile of dirt was still covering up what seem to be the ship's front.
+Wilbert excitedly looked back and forth over the spaceship and then he noticed that a pile of dirt was still covering up what seemed to be the ship's front.
 
 Using his hands, Wilbert started shoveling the dirt away, and soon the nose of the ship underneath was revealed.
 
