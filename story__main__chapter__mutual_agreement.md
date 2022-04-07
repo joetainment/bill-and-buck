@@ -241,7 +241,7 @@ They both stayed very still for a few more moments, clinging to each other. Wilb
 
 Everything was about to get a lot scarier.
 
-In another sudden shocking burst of activity, the floor shook and became more uneven. Its tiny sparkles jittered and warped much more than ealier, becoming bright gliterring flashes of light. The floor started to like like some kind of metallic crystal.
+In another sudden shocking burst of activity, the floor shook and became more uneven. Its tiny sparkles jittered and warped much more than ealier, becoming bright gliterring flashes of light. The floor started to look like some kind of metallic crystal.
 
 Not only the floor, but all the structures in the distance started to take shape and become more visible. The surroundings no longer seemed like a dark fog everywhere, but more and more like a giant crumbling dome.
 
