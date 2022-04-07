@@ -51,7 +51,7 @@ The nature of the spaceship's voice was starting to become clear to Wilbert. He 
 
 "Correct," replied BBR.
 
-Still Wilbert wanted to know more, "But why are you looking after him?  Is he in danger?" 
+Still, Wilbert wanted to know more, "But why are you looking after him?  Is he in danger?" 
 
 If BBR could have enjoyed comedy, she would have laughed. Instead she gave a very matter of fact reply.
 
