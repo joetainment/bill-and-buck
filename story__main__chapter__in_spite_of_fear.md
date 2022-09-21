@@ -83,4 +83,3 @@ As he heard another sudden crash from the north side of the barn, Wilbert spun a
  
 Wilbert had a visitor.
 
-### <br><br>End of Chapter

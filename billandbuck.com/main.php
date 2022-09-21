@@ -108,17 +108,24 @@ p{margin:0 0 2em; font 11px;}
 
 
     readfile( 'story__main__chapter__burt_makes_a_mistake.md.html' ); bnbEndChap();
-    readfile( 'narrators_notes__wilbert_the_active_initiator.md.html' ); bnbEndChap();
+    readfile( 'story__main__intermission__wilbert_the_active_initiator.md.html' ); bnbEndChap();
     readfile( 'story__main__chapter__wilbert_and_his_new_spaceship.md.html' ); bnbEndChap();
+    readfile( 'story__main__intermission__rivers_and_roses.md.html' ); bnbEndChap();
     readfile( 'story__main__chapter__gotcha.md.html' ); bnbEndChap();
+    readfile( 'story__main__intermission__wilberts_workshop.md.html' ); bnbEndChap();
     readfile( 'story__main__chapter__a_prelude_to_the_storm.md.html' ); bnbEndChap();
+    readfile( 'story__main__intermission__wilberts_suspension.md.html' ); bnbEndChap();
     readfile( 'story__main__chapter__in_spite_of_fear.md.html' ); bnbEndChap();
     readfile( 'story__main__chapter__first_contact.md.html' ); bnbEndChap();
     readfile( 'story__main__chapter__whos_that_girl.md.html' ); bnbEndChap();
     readfile( 'story__main__chapter__in_darkness_are_strangers.md.html' ); bnbEndChap();
     readfile( 'story__main__chapter__in_good_faith.md.html' ); bnbEndChap();
     readfile( 'story__main__chapter__mutual_agreement.md.html' ); bnbEndChap();
+    readfile( 'story__main__chapter__escaping_the_end_of_the_world.md.html' ); bnbEndChap();
+    readfile( 'story__main__intermission__burts_nightmare.md.html' ); bnbEndChap();
+    readfile( 'story__main__chapter__remys_blanket.md.html' ); bnbEndChap();
     readfile( 'main__overview__quoia_sign_off.md.html' );
+
 ?>
 
   <script src="boilerplate/js/vendor/modernizr-3.11.2.min.js"></script>

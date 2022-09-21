@@ -9,7 +9,7 @@ Chapter 4 <br> A Prelude To The Storm
 
 "It was a dark and stormy night..."
 
-...Really, it wasn't quite dark yet, which meant it wasn't actually night, nor was the wind yet worthy of being called a storm. Still, Wilbert could see the signs incoming, and Wilbert's mind couldn't help but think of those omnious words. It was clearly *becoming* dark, and *becoming* stormy. Wilbert had *always* been afraid of storms. That night, he expected a bad one.
+...Really, it wasn't quite dark yet, which meant it wasn't actually night, nor was the wind yet worthy of being called a storm. Still, Wilbert could see the signs incoming, and Wilbert's mind couldn't help but think of those omnious words. It was clearly *becoming* dark, and *becoming* stormy. Wilbert's fears of the weather had recently worsened, but Wilbert had *always* been afraid of storms. That night, he expected a bad one.
 
 All of this made Wilbert uneasy. Sitting in the upper level of his barn, he looked out through its windows. All the plants and trees were swaying. As he watched, through his body ran an eerie feeling, a presence of *power*. He noticed a sense of energy running through the air, and he pictured it sparkling throughout the tall grass swaying in the wind.
 
@@ -145,5 +145,4 @@ However, if the word "inside" refered to the place holding what the ship carried
 
 
 
-### <br><br>End of Chapter
 

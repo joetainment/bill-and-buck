@@ -51,3 +51,17 @@ Again, our decision is absolutely final.
 
 
 Principal Keaton
+
+
+
+
+
+Re: Suspension of Wilbert Waterson
+
+Robert Watterson,
+
+Please see the attached: Dr. Carl Wilson's recent psychological assessment of Wilbert. Included are his recommendations for managing his Wilbert's condition, including his post traumatic stress disorder and behavioral difficulties.
+
+
+Principal Keaton
+

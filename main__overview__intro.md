@@ -1,12 +1,11 @@
 
 <br>
 
-BillAndBuck.com
-===================
+# BillAndBuck.com
 
 
-The Collected Stories of Bill and Buck
-----------------------------------------
+## The Collected Stories of Bill and Buck
+
 
 <span style="font-size: 16px">
 Featuring reporting and research by Quoia Oboticca, the robot reporter.
@@ -17,29 +16,23 @@ Featuring reporting and research by Quoia Oboticca, the robot reporter.
 <div style="font-size: 12px;"><i>
 Bill and Buck originally created by Joe Crawford and Brent Kirby. <br><br>
 Stories written and narrated by Joe Crawford (also known as "joetainment"). <br> <br>
+Dedication: For Maya, Joe&#8217;s very first niece! <br>Joe, Quoia, Bill, Buck, and the gang all hope you enjoy these whimzical stories and colorful images. <br><br>
 </i></div>
 
-<br><br>
 
-
-
-![Burts stand outside enjoying a nice day.](burt-first-painting-by-joe--resized.jpg "Burt")
-Burts stands outside enjoying a nice day.
-
+<div>
+  <img style="max-width: 50%; height: auto; border-radius: 25px;"
+    src="burt-first-painting-by-joe--resized.jpg" alt="Burt" />
+  <p>
+    &nbsp;&nbsp; Burt stands outside enjoying a nice day.
+  </p>
+</div>
 
 
 <br>
-Dedication
-===============
-
-<h4>For Maya, Joe's very first niece.</h4>
-Joe, Quoia, Bill, Buck, and the gang all hope you enjoy
-these whimzical stories and colorful images.
-<br><br><br><br>
 
 
-
-
+<!--
 
 
 
@@ -105,10 +98,12 @@ But we might be getting ahead of ourselves, because if stories have beginnings, 
 <br><br><br><br>
 
 
+-->
 
-
-
-Our Story...
+<br>
+Our Story
 ==========
 
-<br><br><br>
+<h2> Once upon another time line, in a little slice of the Multiverse not so dissimilar to our own...</h2>
+
+<br>

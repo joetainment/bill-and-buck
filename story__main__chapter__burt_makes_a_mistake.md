@@ -128,7 +128,7 @@ Bee-bee-arr continued doing its job, sorting out and fixing things so it could w
 
 Burt sat alone in that farm field for quite some time, but he wasn't truly alone, he simply hadn't been discovered yet. All the while, a little boy was nearby, mucking about the farm, which was the boy's home.
 
-With muddy boots and squeaky wagon wheels, every day the boy criss-crossed the farm until one day, he finally stumbled upon the green spaceship. 
+Often, with muddy boots and squeaky wagon wheels, the boy criss-crossed the farm, until one day he finally stumbled upon the green spaceship.
 
 Bee-bee-arr could hear the boy coming, though Burt was still fast asleep as the boy approached. Even if Burt had been awake, he was too weak to defend himself or to flee. The most Burt could have done was hope that the little human was friendly.
 
@@ -154,6 +154,4 @@ Burt was in no state to read them yet, but the paper and its new scribbles had a
 
 "Property of Wilbert"
 
-
-
-### <br><br>End of Chapter
+<br>
