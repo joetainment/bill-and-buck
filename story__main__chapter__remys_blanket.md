@@ -5,14 +5,6 @@
 Chapter 12 <br> Remy's Blanket
 ======================
 
-
-
-<a id="Story--Main--Chapter-->
-Chapter 12  - Remy's Blanket
-======================
-<br>
-
-
 Wilbert was dead... or at least it seemed that way to Remy.
 
 Only minutes earlier, Remy had been thrilled that she'd been able to rescue both of them from the spaceship.
