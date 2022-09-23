@@ -1,11 +1,7 @@
 <a id="Story--Main--Chapter--Escaping-The-End-Of-The-World">
 <!-- 
 2022-08-21  was copied to Gdocs for fixes/review
-copy back to this document once done!
--->
-</a>
-Chapter 11 <br> Escaping The End Of The World
-======================
+copy back to this document once
 <br>
 
 
@@ -52,5 +48,3 @@ It didn't matter though, because Remy was approaching fast. Before the exit coul
 Remy's former home, the world she left behind, quickly destroyed itself. Its space gradually shrunk to nothing, and then it simply ceased to exist.
 
 Although Remy's world was annihilated, she'd saved her friend and her blanket. Her heroics had carried them away to safety, through the exit, out of the spaceship, and back to Wilbert's workshop in the barn.
-
-
