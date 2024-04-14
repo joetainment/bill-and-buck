@@ -38,7 +38,8 @@ Dedication: For Maya, Joe&#8217;s very first niece! <br>Joe, Quoia, Bill, Buck, 
 
 Characters
 ===========
-Once upon another time line, in a little slice of the Multiverse not so dissimilar to our own, there lived a wonderful cast of characters...
+Once upon a timeline, in a little slice of the Multiverse much like own, there lived a wonderful cast of characters...
+
 
 Starring:
 ---------
@@ -104,6 +105,6 @@ But we might be getting ahead of ourselves, because if stories have beginnings, 
 Our Story
 ==========
 
-<h2> Once upon another time line, in a little slice of the Multiverse not so dissimilar to our own...</h2>
+<h2> Once upon a timeline, in a little slice of the multiverse much like our own...</h2> <!-- not so dissimilar to -->
 
 <br>

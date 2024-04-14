@@ -126,11 +126,11 @@ Bee-bee-arr continued doing its job, sorting out and fixing things so it could w
 
 <br><br>
 
-Burt sat alone in that farm field for quite some time, but he wasn't truly alone, he simply hadn't been discovered yet. All the while, a little boy was nearby, mucking about the farm, which was the boy's home.
+Burt sat alone in that farm field for quite some time, but he wasn't truly alone, he simply hadn't been discovered yet. All the while, a little boy was nearby, mucking about the farm which was the boy's home.
 
 Often, with muddy boots and squeaky wagon wheels, the boy criss-crossed the farm, until one day he finally stumbled upon the green spaceship.
 
-Bee-bee-arr could hear the boy coming, though Burt was still fast asleep as the boy approached. Even if Burt had been awake, he was too weak to defend himself or to flee. The most Burt could have done was hope that the little human was friendly.
+Burt was still fast asleep as the boy approached. Even if Burt had been awake, he was too weak to defend himself or to flee. The most Burt could have done was hope that the little human was friendly.
 
 But alas!
 
@@ -144,13 +144,11 @@ This little human, it would eventually turn out, was downright mean.
 
 <br><br>
 
-The little human boy approached Burt, and upon reaching his discovery, the boy pulled out a long slip of paper with a sticky coating on its backside. (A "sticker", as Burt would later discover it was called.)
-
-With a slap of his hand, the boy affixed the paper to the side of Burt's hull. Then, with a wave of his arm, the boy revealed a colorful cylinder, which he promptly used to scribble something onto the sticker.
+The little human boy approached Burt, and upon reaching this discovery, the boy pulled out a long slip of paper with a sticky coating on its backside. With a slap of his hand, the boy affixed the paper to the side of Burt's hull. Then, with a wave of his arm, the boy revealed a colorful cylinder, which he promptly used to scribble something onto the sticker.
 
 Burt was now wearing a sign. Burt had been labeled.
 
-Burt was in no state to read them yet, but the paper and its new scribbles had a clear message, one that set the tone for Burt's months to follow. The text on Burt's side now proudly declared a new truth:
+Burt was in no state to read them yet, but the paper and its new scribbles presented a clear message, one that set the tone for Burt's months to follow. The text on Burt's side now proudly declared a new truth:
 
 "Property of Wilbert"
 

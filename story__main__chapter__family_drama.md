@@ -1,0 +1,176 @@
+<a id="Story--Main--Chapter--Family-Drama"></a>
+<!--
+
+-->
+Chapter 16 <br> Family Drama
+======================
+
+
+The ride home was a miserable one for Wilbert. He just didn't have the energy to pedal back up the muddy mountain side he'd come from. Sure, he'd tried, but it seemed impossible. So instead he was forced to take the long way home. Sadly, the change of route meant Wilbert had to ride along the highway, which meant going right by the village he'd nearly destroyed. The village wasn't exactly on the highway, but started just a few yards down from the side of the road.
+
+By the time Wilbert went by that village, it was very dark.  Most of the illumination came from the emergency and siren lights.
+
+They were police cars, fire trucks, and ambulances. All kinds of on-lookers and their vehicles were at the side of the road that led off the highway.
+
+There were even some military officers there. Though Wilbert was oblivious to their reasons at the time.
+
+Wilbert just peddled by, past some mostly empty cars parked on the highway, and tried not to look much at the village. His guilt was overwhelming. He felt as if the searing eyes of everyone would be upon him. In actuality, he was ignored by the crowd. No one imagined such a young boy could be responsible for a disaster that involved the actual shaking the earth. Only a single officer off in the distance appeared to pay him any attention. It wouldn't be until later that Wilbert would realize why.
+
+Wilbert kept going though, and thankfully, he soon found himself past the village and on a very dark and empty stretch of the highway.
+
+Since much of the road along the lake been washed out, the highway had been mostly closed, and was accessible only to local and emergency traffic. So the normally busy highway was the most deserted Wilbert had ever seen it.
+
+Still, his ride remained miserable. The rain and the wind kept picking up and it only made the experience more grueling.
+
+Wilbert's mind was completely preoccupied by  worries and visions of the disaster. Horrible ideas kept repeating in his head.
+
+Wilbert was able to find a glimmer of hope though, so he focused on that.
+
+At least, he thought, Remy and the blanket were okay. As he thought harder about it, more reasons to hope were apparant in his mind.
+
+From a certain point of view, everything had worked out about as well Wilbert could have asked for. A triumphant thought emerged.
+
+"Water!  I got the water!"
+
+Wilbert was sure that he must have collected enough water. Even if there'd been some unforeseen consequences, at least he had accomplished his mission.
+
+Yes, he thought, his quest for water had been a massive success. The empty lake was proof of that. Although accidental, the blanket had clearly retrieved more water than Wilbert had considered possible.
+
+Wilbert's imagination was sparked to life. Maybe Burt would now be on the mend! Maybe BBR would be back up and running again!
+
+Although parts of his mind remained in a bad mood, the thoughts of his spaceship helped give Wilbert enough energy to keep going, even in his near total exhaustion.
+
+So he just kept peddling. He pedaled down the highway, around the turnoff to the Farm Road and peddled through the shortcut in the woods to avoid the slightly longer road to his farm.
+
+As he rode through the forest, he could see bright headlights passing by on the road to his left. As the lights faded through the trees into the distance ahead of him, Wilbert wondered who would possibly be driving down that road on such a night.
+
+Without giving it too much thought, Wilbert emerged at the end of the trail, back on that road to his farm, right where the road came paralell to his farm's fence.  It was too dark to see them, but the letters "Rivers and Roses" were engraved along the lengths of those fenceposts.
+
+Wilbert was nearly home now, as he reached the entrance to the farm, he turned off the main road onto the farm's private road, across it's tiny bridge, and to the right where the road split. Wilbert followed it into the driveway of his farm house.
+
+Then suddenly, Wilbert slammed on the brakes, and stopped right in his tracks. 
+
+He was both shocked and furious, instantaneously, because he discovered he had one more surprise to deal with that day.
+
+Sitting in his driveway, parked hurriedly in front of the porch, was a truck Wilbert recognized all too well. A truck that he hadn't seen in that driveway for a couple months now, and one he'd hoped he would never see again.
+
+"Oh no..." Wilbert mumbled to himself, followed by a sigh, "...River."
+
+It was his uncle's truck. His uncle River. The same River that Rivers and Roses was named after.
+
+Then, Wilbert's heart sank again. In another mini panic attack, Wilbert came to understand that all of his plans would be ruined if River got any hint of what was going on.  Wilbert's entire future was suddenly in jeopardy.
+
+"Stupid River!" Wilbert yelled in his mind, as he smashed his handlebars in anger, "Why did you have to show up?"
+
+Deep down, Wilbert knew that River was a good guy. Maybe even the best possible guy.
+
+Wilbert hated him anyway. There were many reasons, but the main reason was simple. River tended to do what Wilbert's own mother and father never did.
+
+River tried to take care of Wilbert. He'd check in on Wilbert. He'd find out what was going on in Wilbert's life, and eventually he'd be telling Wilbert what to do. River would interfere.
+
+Unlike Wilbert's actual mother and father, River acted like a parent. For River, acting like a parent meant treating Wilbert as a child. Wilbert hated him for that.
+
+Wilbert looked around. He couldn't tell where River was, or if River had spotted him yet, but Wilbert correctly guessed that River was probably inside the house.
+
+Wilbert quickly understood he needed to hide Remy and the blanket. With that, Wilbert moved fast, pedaling back to the barn.
+
+Upon reaching the barn, he hurriedly got the bike inside, and carried Remy and her blanket through the workshop's make shift kitchen and into the tiny washroom in its corner. There he placed Remy's blanket in the cupboard under the sink, with her inside. 
+
+Wilbert was all too aware that his spaceship, Burt, was just hovering outside the kitchen in the middle of the barn. Wilbert knew that River could burst in at any moment and discover it all.
+
+Such a discovery would mark the end of Wilbert's recent adventures. River would freak out. He'd call in a bunch of officers, and they carry away Burt, and with it, any of Wilbert's space traveling dreams. Wilbert could not allow that to happen.
+
+Wilbert decided that because Remy and the blanket were now tucked away, his best course of action was simply to get back into the house as fast as possible.  At this point, keeping River out of the barn was the top priority. River probably wouldn't have any reason to even look in the barn if Wilbert was in the house.
+
+Fortunately, as was characteristic of her, Remy fell asleep in less than a minute. Being sure not to wake her, Wiilbert snuck past his motionless but still floating spaceship, and back outside his barn towards the farmhouse. 
+
+Hurrying but trying to stay quiet, Wilbert made his way back to the porch and in through the front door of the house.
+
+He took his shoes off, took off his outer layers of soaking clothes, and looked around. River was nowhere to be seen, but Wilbert's ears could hear distant footsteps, probably River's. Those steps sounded like they were coming from the third floor.
+
+Wilbert could also hear snoring, and the obvious voices of broadcasters. From the entranceway he was partially able to see into the living room to his right. He could make out just enough to tell that his father was passed out in front of the television, which had been left on. Its flickering light was the only thing illuminating the otherwise dark living room.
+
+Instead of going into the living Room, Wilbert went to his left, through the dining room and into the kitchen. Instead of being quiet, this time he stomped quite loudly on the dining room's wooden floors, hoping to draw River's attention.
+
+It worked. Soon the footsteps above were on the second floor, and by the time Wilbert made his way to the kitchen, the footsteps he heard were coming down the stairs in front of the entranceway.
+
+Within moments, the footsteps walked around into the kitchen, and there was River, a towering, frighteningly huge officer, standing right in front of Wilbert.
+
+Wilbert simply stood there, straight faced, defiant.
+
+River paused momentarily and looked Wilbert over, then suddenly moved.
+
+Wilbert winced as River lunged towards him, grabbed him, picked him up, and wrapped Wilberts tiny body up in River's giant arms.
+
+"Oh Thank God!  You're okay!" exclaimed River, "I had no idea where you were. I yelled for you earlier. I looked upstairs in your bedroom and was about to start searching outside for you."
+
+It was a startlingly emotional outburst for a man who was usually the most stoic person Wilbert had ever met.
+
+River put Wilbert back down again, and brushed him off, before releasing Wilbert completely and standing back up.
+
+River being so tall while Wilbert was so short meant that Wilbert had to look almost straight up in order to make eye contact.  For the most part he didn't even try.
+
+"You're all wet Wilbert, soaked actually." River began, "You were outside, out in the rain, in this weather."
+
+Wilbert was speechless. Such observations, bordering on questioning, was exactly what Wilbert was expecting. Uncle River seemed in inspector mode now, interrogating Wilbert for answers.
+
+River kept staring as Wilbert held his tongue. Before long the expression on River's face turned to one of suspicion.
+
+"You were at the lake tonight weren't you?  That was you I saw down there, wasn't it?"
+
+Wilbert felt like he had to say something.
+
+"No." Wilbert said forcefully.  "No, I was playing outside."
+
+As confidently as he said it though, it was no use. River kept looking him over, and frowned somewhat in response to Wilbert's answer. The expression on River's face told the obvious truth. They both knew Wilbert was lying. River in fact, had years of experience with Wilbert, and River knew that lies were to be expected.
+
+"Wilbert, you need to stop lying," said River.  He paused intentionally for a few moments to drive the message home, then continued, "It doesn't really matter even if you were at the lake though. You're alright. You made it home safe. That's all that matters."
+
+River pointed out of the kitchen, towards the front living room, where muffled voices from the television could still be heard.
+
+River went on,  "That was unbelievably dangerous down at the lake today. They're talking about it on the TV even. There was probably an earthquake.  Parts of the road are out. There's probably going to be even more rock slides in the next couple of days. The ground is still unstable. It's a miracle things weren't way worse actually. You need to stay far away from the lake.
+
+"When I was down at the lake, I saw you. I wasn't even sure it was you, but it reminded me to check on you guys. I know how messed up this house is.
+
+"I called but I couldn't get a hold of anyone here, so I came to the house. One disaster to another right? I talked to your dad. Drunk as usual. He had no idea where you were, so I looked upstairs for you."  
+
+As River spoke, Wilbert slowly found he was getting his confidence back. River was certainly less aggressively investigating than Wilbert had worried. Wilbert decided to speak up and express his own skepticism.
+
+
+"Why are you here River?" Wilbert inquired as he looked up suspiciously, attempting to peer right into River's eyes.
+
+So far River showed no signs of knowing anything about the spaceship, but Wilbert hoped River's reaction would reveal anything he knew.
+
+"Why am I here? Are you serious? Really?" River reacted to the question with utter disbelief. River could not comprehend Wilbert's lack of understanding.
+
+Wilbert became more certain that River knew nothing at all. Nothing of his Spaceship, the blanket, Remy... Nothing that mattered. River had no real comprehension of what had happened at the lake. Wilbert knew this because he was familiar with River. Wilbert knew River was a straight shooter.  If River suspected something more, he would probably have made it obvious by now.
+
+Still Wilbert expected an answer... As River, baffled, looked back at Wilbert, Wilbert shook his head, shrugged, and even made a little "come here" motion with his fingertips, taunting River.
+
+River was used to Wilbert's suspicion, paranoia and even occasional hatred, but it was genuinely shocking to River that Wilbert failed to understand his presence. He'd already explained it as well as he could.
+
+"Wilbert, I just told you. I'm here because I care about you. I care about your Dad too. He's my brother. I even care about your Mom for some reason, even if I wish I didn't.
+
+"I was worried about you. Like I said, your dad didn't know where you were. I know you go biking and exploring around here all the time. I was worried you might be down at the lake and it looks like I was right.
+
+"I was just worried Wilbert," River finished his explanation, still confused as to why he needed to explain himself at all.
+
+"Well, we're here, so you can stop worrying," Wilbert snapped back.
+
+River acknowledged him. "Okay yes, yeah, you are here. I'm really glad.
+
+"Now listen up. You stay here. Stay away from the lake, okay? In fact, I don't think you should be going anywhere for a few days. We still don't really know what happened. After an earthquake like that it may not be safe around here. There's a lot of mud and rock slides probably. Just stay here for a few days, understood?"
+
+"Fine, whatever," said Wilbert, with some renewed bitterness now that he noticed River was back to bossing him around, "Can I go now?"
+
+"Yes. You can go to bed Wilbert. You've got to be exhausted after all that biking. Go to bed." River responded before he finally gave Wilbert one last command, "In the morning, you come talk to me."
+
+Wilbert scowled at the orders he'd received. He stomped off past River towards to kitchen. Before leaving he got in the last word though. With obvious sarcasm, Wilbert was loud enough to be sure River could hear him.
+
+"Yes sir, Lieutenant Watterson! Sir!"
+
+Though River was hurt by the contempt in Wilbert's voice, he didn't show it.  River allowed Wilbert to leave, saying nothing more as Wilbert disappeared up the stairs and out of River's view.
+
+Upstairs, relieved to be away from River, Wilbert continued to his bedroom, and upon its entering, he completed his last few heavy steps to his bed. As soon as he was close enough for it to catch his fall, Wilbert collapsed. There, in bed, he quickly fell into the deepest sleep he'd had in his entire life...
+
+...while River went back to the lake.

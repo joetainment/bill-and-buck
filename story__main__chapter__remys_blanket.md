@@ -1,12 +1,9 @@
 <a id="Story--Main--Chapter--Remys-Blanket"></a>
 <!--
-2022-09-22  currently being edited in gdocs
-this is dup
+
 -->
 Chapter 12 <br> Remy's Blanket
 ======================
-
-
 
 Wilbert was dead... or at least it seemed that way to Remy.
 
@@ -16,7 +13,7 @@ Now though, Remy was panicked. Her only friend in the universe was lying limp in
 
 Luckily for them, Wilbert was going to be fine. Though he'd taken a pretty hard knock, it wasn't truly life threatening. Within a few minutes, he started to awaken.
 
-Wilbert woke up at a very slow pace.  Somewhat dazed,all that he perceived at first was vague feelings. His sore skull and significant headache being the most obvious.
+Wilbert woke up at a very slow pace.  Somewhat dazed, all that he perceived at first was vague feelings. His sore skull and significant headache being the most obvious.
 
 Then, sounds came into his awareness. Wilbert could hear pattering rain and howling wind, which had quieted somewhat from the worst of the storm.
 
@@ -24,11 +21,13 @@ Gradually he became more aware of his environment, and finally opened his eyes. 
 
 As he regained consciousness, memories caught his attention. Soon he remembered most of what had happened in the ship, but he remained very confused regarding how he'd escaped. The last thing he could remember was falling through the darkness in the spaceship.
 
-For a moment it crossed his mind that maybe he'd been dreaming, but as he thought a little harder he was fairly sure it wasn't a dream. He soon became certain, because as he began to move his body he was able to look around, and sure enough, right beside him was Remy with her blanket, which was mesmerizing. Not only did the blanket sparkle, but its surface gave off a dim glow all over. That glow washed around the blanket's surface, in a beautiful flow like the motion of a lava lamp. The blanket was so incredible to look at, that it was clearly not something from his workshop.
+For a moment it crossed his mind that maybe he'd been dreaming, but as he thought a little harder he was fairly sure it wasn't a dream. He soon became certain, because as he began to move his body he was able to look around, and sure enough, right beside him was Remy with her blanket.
 
-Seeing the blanket was a clue for Wikbert. What happened earlier had not been a dream, he reasoned, because if the blanket was real, then the events in the spaceship were probably real as well.
+Wilbert was captivated by the look of that blanket. It was mesmerizing. Not only did it sparkle, but its surface gave off a dim glow that washed all around, like the motion of a lava lamp. It's appearance was otherworldly. It was clearly not something from Wilbert's workshop.
 
-Wilbert stared at Remy, who was illuminated by the glow of the blanket. Remy stared back at him intently. She'd been doing so for a while. It had been almost 20 minutes since she'd dragged him out of the spaceship. All that time, Remy had been extremely worried. Now she was so relieved to see that Wilbert was okay. She nuzzled up to Wilbert as he began to sit up from lying on the floor.
+To Wilbert, seeing the blanket was a clue. What happened earlier had not been a dream, he reasoned, because if the blanket was real, then the events in the spaceship were probably real as well.
+
+As Wilbert stared at Remy and her blanket, she stared back at him intently. She'd been doing so for a while. It had been almost 20 minutes since she'd dragged him out of the spaceship. All that time, Remy had been extremely worried. Now she was so relieved to see that Wilbert was okay. She nuzzled up to Wilbert as he began to sit up from lying on the floor.
 
 Remy appeared flustered to Wilbert, so he gradually stroked Remy's neck and back, in an attempt to soothe her. As he calmed Remy, Wilbert considered how he'd gotten back to the barn. He felt very lucky that he even made it out of the spaceship alive.
 
@@ -48,35 +47,35 @@ Again, Remy didn't understand, but she could feel the sympathy coming from Wilbe
 
 Just as they had in the spaceship before, the two of them sat there together recovering.
 
-...
+... 
 
 While resting, Wilbert took some time to collect his thoughts and solidify his intentions. He needed to have a clear understanding of what his situation was.
 
-After a few moments reorganizing his thoughts, Wilbert was able to assemble a clear recollection of everything that had happened inside the spaceship. What really stood out to him was how terrifying and dangerous the last moments had been. It seemed a miracle Remy had been able to save them at all.
+After a few moments reorganizing his thoughts, Wilbert was able to assemble a clear recollection of everything that had happened inside the spaceship. What really stood out to him was how terrifying and dangerous the last moments had been. It seemed a miracle Remy had been able to save them at all. 
 
 Since the glow of the blanket was still pretty dim, Wilbert stood up and went to get another flashlight. Once he found one, he walked back towards the ship to look at it more closely. Remy followed along with him.
 
 Wilbert suspected that returning to the inside of the ship would be terribly unsafe. It didn't make any difference though, because Wilbert couldn't imagine how he'd get back inside the spaceship anyway. The window on its side was now completely gone.
 
-Together, the two of them walked around the spaceship several times, observing it from all sides.  Remy, a few steps behind, ended up facing the side of the ship, with Wilbert at its front. Neither of them could find much of any interest. There was only solid hull, no windows, doorways, or anything else. The spaceship looked much like it had before Remy's arrival. Still, Remy decided she would try to get in anyway. She jumped up and poked her head into the ship. The result was a very peculiar sight.
+Together, the two of them walked around the spaceship several times, observing it from all sides.  Remy, a few steps behind, ended up facing the side of the ship, with Wilbert at its front. Neither of them could find much of any interest. There was only solid hull, no windows, doorways, or anything else. The spaceship looked much like it had before the window appeared. Still, Remy decided she would try to get in anyway. She jumped up and poked her head into the ship. The result was a very peculiar sight.
 
-Wilbert was suddenly able to see Remy on both sides of the ship, as if she were split in two pieces. Her body was leaning into the port side of the ship as her head poked out of starboard.
+Wilbert was suddenly able to see Remy on both sides of the ship, who looked like she was in two disconnected pieces. She appeared as a little floating head peeking out from the opposite side of the spaceship, while her body stayed in place.
 
-Remy looked like she was in two disconnected pieces. She appeared as a little floating head peeking out from the other side of the spaceship, while her body stayed her body stayed in place.
+Then Remy withdrew her head, and immediately she was whole again, right back where she started. Disappointed, she returned to Wilbert.
 
-Remy withdrew her head. Immediately she was whole again, right back where she started. Then she returned to Wilbert.
+Wilbert was quite perplexed by what he saw. Even though Remy could pass through the hull, it seemed she effectively had nowhere to go.
 
-Wilbert was quite perplexed by what he saw. At the same time, he was less frustrated than he had been before. His situation was different now. He was still locked out of the spaceship but progress seemed possible. Wilbert was developing a plan.
+To some degree this bothered Wilbert, since he was again locked out of his ship. However, he was less frustrated than he would have been before. His situation was different now. Progress seemed possible. In Wilbert's mind, he was developing a plan.
 
-He didn't know precisely what he was supposed to do, but he had at least a general idea of his task. He remembered BBR's request, and he still had hope that if he could complete his task, he might be able to repair his ship, or rather, repair *the* ship (Burt). If Wilbert could help BBR then she'd help him, and he could build a new spaceship BBR would teach him to build a new spaceship of his own, one that really would be “Property of Wilbert”.
+He didn't know precisely what he was supposed to do, but he had at least a general idea of his task. He remembered BBR's request, and he still had hope that if he could complete his task, he might be able to repair his ship, or rather, repair *the* ship (Burt). If Wilbert could help BBR then she'd help him, and he could build a new spaceship BBR would teach him to build a new spaceship of his own, one that really would be “Property of Wilbert”. 
 
-Wilbert was ready to take his next steps. "Okay," he thought, "Mission objectives:  Water...  blanket... spaceship...  Get the water to the blanket, get the blanket to the spaceship."
+Wilbert was ready to take his next steps. "Okay," he thought, "Mission objectives:  Water...  blanket... spaceship...  Get the water to the blanket, get the blanket to the spaceship." 
 
 It was the most he could understand, given the few directions he’d gotten from BBR.
 
 How exactly the blanket would help Wilbert to get water was the part Wilbert didn't understand. BBR had mentioned she'd done something to the blanket in order to make it useful, but Wilbert didn't know what. He did at least understand what solution he was looking for. He needed to figure out what was so special about that blanket.
 
-Wilbert walked back towards where he had woken up. Remy’s blanket sat there where she’d left it, between the ship and his work desk. Wilbert knelt down on one knee and picked it up, then shook it a bit to uncrumple it.
+Wilbert walked back towards the spot where he had woken up. Remy’s blanket sat there where she’d left it, between the ship and his work desk. Wilbert knelt down on one knee and picked up the blanket, then shook it a bit to uncrumple it.
 
 In addition to its obvious glow, Wilbert noticed how soft and smooth it was. As it uncrumpled, he could also tell that it had a circular shape, almost like a round bath mat. It was surprisingly large once it was splayed out.
 
@@ -108,13 +107,13 @@ As Wilbert listened to the suction, it gradually calmed down until he could hear
 
 The button, was no longer a hole anymore, it was again just a button, as it had been before Wilbert found it.
 
-Kneeling on the floor with the blanket was pretty awkward, so Wilbert carried it over to one of his larger tool benches, and climbed onto a tall stool beside the bench. Such a tall stool was useful, because Wilbert himself was so short, and the stool was one of many items that in the barn that allowed him to make use of places he couldn't otherwise reach.
+Kneeling on the floor with the blanket was pretty awkward, so Wilbert carried it over to one of his larger tool benches, and climbed onto a tall stool beside the bench. Such a tall stool was useful, because Wilbert himself was so short, and the stool was one of many items in the barn that allowed him to make use of places he couldn't otherwise reach.
 
 Remy hopped up beside him onto the workbench, standing right beside the blanket and looking down at it.
 
-Wilbert wanted to experiment further on the blanket, but didn't want to hurt his finger again. Instead, he looked around at the various tools that were available near his workbench. He decided that a flathead   screwdriver with a rounded handle at the back was probably his best bet for opening the button again.
+Wilbert wanted to experiment further on the blanket, but didn't want to hurt his finger again. Instead, he looked around at the various tools that were available near his workbench. He decided that a flathead  screwdriver with a rounded handle at the back was probably his best bet for opening the button again.
 
-Wilbert grabbed a screwdriver and returned to the blanket. Carefully, reaching down he poked at the button with the flathead tip of the screw driver.
+Wilbert grabbed a screwdriver and returned to the blanket. Carefully reaching down, he poked at the button with the flathead tip of the screw driver.
 
 As Wilbert pressed into it he was able to make the button open up, and as he tried harder, the button became a larger and larger ring. Again, a hissing sound could be heard as the suction began.
 
@@ -140,7 +139,7 @@ It occurred to Wilbert that if the blanket could suck in air, and could suck in 
 
 Most importantly, the blanket could almost certainly suck in water. After all, water was what BBR had requested. Her intentions for Wilbert and the blanket were starting to make sense.
 
-It also occurred to Wilbert that the empty space inside the blanket looked a lot like the empty space inside the space ship. If the blackness of the blanket looked like the inside of the ship, then perhaps it represented a way to get water back to BBR.
+It also occurred to Wilbert that the empty space inside the blanket looked a lot like the empty space inside the spaceship. If the blackness of the blanket looked like the inside of the ship, then perhaps it represented a way to get water back to BBR.
 
 "Okay Remy," said Wilbert, "I think I know what's going on here."
 
@@ -162,7 +161,7 @@ Wilbert bundled up the blanket and carried it over to the sink. Remy followed. H
 
 Putting the blanket down under the faucet, and beginning to run the water, Wilbert wasn't sure what to expect. He hadn't yet opened the button. This was on purpose though as he was curious how the fabric of the blanket would react to water. Wilbert also wondered whether or not the button would open on its own when hit by water.
 
-It did not. Water just bounced off of the button and splashed all around the sink, wetting the blanket. Wilbert turned off the faucet before too much of that splashing hit him.
+It did not. Water just bounced off of the button and splashed all around the sink, wetting the blanket. Wilbert turned off the faucet before too much of that splashing hit him. 
 
 It wasn't until Wilbert picked the blanket back up that he noticed anything interesting.
 
@@ -182,16 +181,14 @@ Instead, Wilbert could see that on the blanket, dirt was now just as absent as w
 
 Despite being quite impressed, Wilbert put the blanket back into the sink so that he could refocus on the task at hand. He made sure the mysterious opening button was positioned directly under the faucet, face up, at the top of the scrunched up blanket.
 
-With his fingernails, Willbert pushed into the button and pryed it open. It was slow but took less force than he expected. Even with just his fingernails, within a few seconds, he was able to ooen the button to about the width of a dime. Wilbert was satisfied that would be enough for his experiment.
+With his fingernails, Willbert pushed into the button and pried it open. It was slow but took less force than he expected. Even with just his fingernails, within a few seconds, he was able to open the button to about the width of a dime. Wilbert was satisfied that would be enough for his experiment. 
 
 Without delay, Wilbert moved his hand to the faucet and began running the water again. A thick stream of water started pouring onto the blanket and its button, and Wilbert quickly adjusted the blanket making sure the button stayed under the flow of water.
 
 At first, water splashed everywhere, since there was too much water to fit through the tiny hole in the button. As Wilbert watched though, the donut ring shape of the button widened. Before long the button looked more like a large hooped earring, significantly wider than the stream of water pouring into it. The splashing stopped, and the water became a steady stream which simply disappeared into the black void behind the button's opening.
 
-Finally, the button stabalized and corrected itself, by slowly shrinking back down until it was just a tiny bit wider than the stream of water pouring into it.
+Finally, the button stabilized and corrected itself, by slowly shrinking back down until it was just a tiny bit wider than the stream of water pouring into it.
 
-And there it was, the solution that Wilbert sought, how to get water into the blanket.
+And there it was, the solution that Wilbert sought: How to get water into the blanket.
 
-Wilbert smiled. He may have been worn out, tired, sore, and fighting a headache, but Wilbert smiled anyway. He smiled because he believed the completion of his quest was now just a matter of scale. Wilbert's only immediate question was which body of water he would go to first.
-
-
+Wilbert smiled. He may have been worn out, sore, and fighting a headache, but Wilbert smiled anyway. He smiled because he believed the completion of his quest was now just a matter of scale. Wilbert's only immediate question was where to go for more water.

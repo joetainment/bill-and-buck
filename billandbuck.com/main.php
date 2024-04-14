@@ -9,6 +9,7 @@
 <meta charset=utf-8>
 <meta name=description content="The collected stories of Bill and Buck, with their friends Kara, Quoia Timmy Tammy and even Burt the spaceship frog.">
 <meta name=viewport content="width=device-width,initial-scale=1">
+<link rel="shortcut icon" type="image/png" href="favicon.png"/>
 <link rel=apple-touch-icon href=icon.png>
 <link href=https://fonts.gstatic.com rel=preconnect crossorigin>
 <link rel=stylesheet href="https://fonts.googleapis.com/css?family=Open+Sans:400,700&display=fallback">
@@ -124,6 +125,10 @@ p{margin:0 0 2em; font 11px;}
     readfile( 'story__main__chapter__escaping_the_end_of_the_world.md.html' ); bnbEndChap();
     readfile( 'story__main__intermission__burts_nightmare.md.html' ); bnbEndChap();
     readfile( 'story__main__chapter__remys_blanket.md.html' ); bnbEndChap();
+    readfile( 'story__main__chapter__preparations.md.html' ); bnbEndChap();
+    readfile( 'story__main__chapter__bodies_of_water.md.html' ); bnbEndChap();
+    readfile( 'story__main__chapter__the_deep_end_of_cameron_lake.md.html' ); bnbEndChap();
+    readfile( 'story__main__chapter__family_drama.md.html' ); bnbEndChap();
     readfile( 'main__overview__quoia_sign_off.md.html' );
 
 ?>
